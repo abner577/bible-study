@@ -16,7 +16,7 @@
 
 
 ## Heart response
-- First off, it was NOT God`s intention to have a world full of death and corruption, when God first created the world it was descrived as being perfect and without any death.
+- First off, it was NOT God`s intention to have a world full of death and corruption, when God first created the world it was described as being perfect and without any death.
 - He created the Moon, stars, land, sea, animals, and people.
 
 - AND GOD GAVE MAN THE ABILITY TO MAKE CHOICES. This is something that God says is good, if God really wanted to he could end all the bad things on Earth, he coule hypothetically create a state where it would be impossible for anyone to do anything wrong.
@@ -61,7 +61,7 @@ Romans 5:2-4 "And we boast in the hope of the glory of god, Not only so, but we 
 
 - Now imagine if everything was perfect: if you always got what you wanted, had all the money, things, etc. --> Do you TRULY think that you could truly appreciate all that you had? Or maybe do you think that God allows bad things to happen to get us to appreicate life in a deeper way? 
 
-- Someone who got layed off probably has a greater appreciate for their job and money, someone who lost their mom has a greater appreciation for their mom, and so on.
+- Someone who got laid off probably has a greater appreciate for their job and money, someone who lost their mom has a greater appreciation for their mom, and so on.
 - And for someone who lost a loved one (which is such a common example used). In turn they probably have a much bigger appreciation for the loved ones still in their life. 
 
 - Now this isnt to say that suffering is a good thing or we should see it is a good thing because it allows us to develop character and etc. --> But its something you get through, and its something you grow through and come out better on the other side. 

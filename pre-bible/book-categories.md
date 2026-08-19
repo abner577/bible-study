@@ -18,7 +18,7 @@
 3. Poetry & Wisdom category
 - These books include: *Job, Psalms, Proverbs, Ecclesiastes, and Song of Songs*
 
-- This category was a bit different because unlike the first 2 categories which are much more traditional narrative stories that have a setting, characters, and a plot. But the poetry books contians alot of metaphore and poetic language to teach us big themes like the meaning of life, suffering, love, etc.
+- This category was a bit different because unlike the first 2 categories which are much more traditional narrative stories that have a setting, characters, and a plot. But the poetry books contains alot of metaphore and poetic language to teach us big themes like the meaning of life, suffering, love, etc.
 
 4. Major Prophets
 - These books include: *Isiah, Jeremiah, Lamentations, Ezekiel, Daniel* (Also considered parenthetical)
@@ -46,7 +46,7 @@
 
 2. History category 
 - Just includes *Acts*
-- This book is about the history of how the church began and grew. This was written by Luke and this is generally known as beign the sequel to Luke.
+- This book is about the history of how the church began and grew. This was written by Luke and this is generally known as being the sequel to Luke.
 
 3. Pauls Letters (Pauline Epistles) (All written by Paul)
 - These books include: *Romans, 1/2 Corinthians, Galatians, Ephesians, Phillippians, Colossians, 1/2 Thessaolonians, 1/2 Timothy, Titus, Philemon*
@@ -62,7 +62,6 @@
 - Peter and John where the disciples that were probably closest to Jesus and James & Jude were Jesus`s half brothers. This is because Jesus was born of a virgin Mary, but after this as we know Mary and Joseph continued having kids making them Jesus half brothers.
 
 5. Revelation
-- Is its own category/book --> Because it is the final prophecy that is given to use by god, and this book tells us what will happen during the end of the world and it describes Jesus second coming.
-- Jesus comes the first time as a humble servant to teahc us about the kingdom of heaven and to die for our sin.
-- And the second time he comes he will come back to judge the nations and to bring peace to the earth.
-
+- Is its own category/book --> Because it is the final prophecy that is given to us by god, and this book tells us what will happen during the end of the world and it describes Jesus second coming.
+- Jesus comes the first time as a humble servant to teach us about the kingdom of heaven and to die for our sin.
+- And the second time he comes he will come back to judge the nations and to bring peace to the earth
