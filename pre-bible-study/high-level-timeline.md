@@ -18,16 +18,16 @@ General history timeline/major events such as the crossing of the red sea, or be
 - Abrahams family eventually becomes the nation of Israel 
 - Family line: Abraham --> Issac --> Jacob/Israel --> 12 tribes of Israel
 
-4. Joseph and Israels move to Egypt -- around 1700 BC (Joseph = Son of Jacob)
+4. Joseph and Israel move to Egypt -- around 1700 BC (Joseph = Son of Jacob)
 - Joseph is sold into slavery by his brothers and ends up in Egypt
-- He eventually becomes powerful ther and saves his family during a famine. 
+- He eventually becomes powerful there and saves his family during a famine. 
 
 5. Moses, the Exodus, and the Red Sea 
-- The israelites havebecome slaves in Egypt, God sends Moses to free them, the Ten Plagues occur
-- The israelites esacpe Egypt and cross the Red Sea after God parts the waters
+- The israelites have become slaves in Egypt, God sends Moses to free them, the Ten Plagues occur
+- The israelites escape Egypt and cross the Red Sea after God parts the waters
 
 6. The Ten Commandments and 40 years in the wilderness
-- God gives Israel the Law at Mount Sinai, including the Ten Commandment
+- God gives Israel the Law at Mount Sinai, including the Ten Commandments
 - Israel then refuses to trust God and enter the Promised Land 
 - Because of this, they wander in the wilderness for 40 years.
 
@@ -40,11 +40,11 @@ General history timeline/major events such as the crossing of the red sea, or be
 
 9. King David and Goliath -- around 1000 BC
 - David defeats the Philisitne warrior Goliath while still a young man
-- David later becomes Israels greatest king, and Jerusalme beomces the center of the kingdom.
+- David later becomes Israels greatest king, and Jerusalem becomes the center of the kingdom.
 - God promises that Davids royal line will have lasting importance.
 
 10. Solomon and the Temple
-- David son, Solomon becomes king and builds the Temple in Jerusalme, which becomes the center of Israelite worship
+- Davids son, Solomon becomes king and builds the Temple in Jerusalem, which becomes the center of Israelite worship
 
 11. Israel divides and the prophets warn the people.
 - Israel original was a unified Kingdom: The unified Kingdom of Israel was established in the geographic region previously known as the land of Canaan, which was called the "Promised Land"
@@ -56,7 +56,7 @@ General history timeline/major events such as the crossing of the red sea, or be
 - Many Jews are taken to Babylon (famous Babylonian Exile)
 
 13. The Jews return and rebuild
-- Persia later conuqers Bbaylon, jews are allowed to return to Jerusalem, the templre and jerusalem are rebuilt, centuries later, the region eventually comes under Roman control
+- Persia later conuqers Babylon, jews are allowed to return to Jerusalem, the temple and jerusalem are rebuilt, centuries later, the region eventually comes under Roman control
 
 ---
 
@@ -67,11 +67,11 @@ General history timeline/major events such as the crossing of the red sea, or be
 
 15. Jesus ministry and miracles
 - Jesus teaches about God and the Kingdom of God and performs many miracles such as:
-- Turnign water into wine, walking on water, feeding the 5k with 5 loaves and 2 fish, etc
+- Turning water into wine, walking on water, feeding the 5k with 5 loaves and 2 fish, etc
 
 16. Jesus major teachings
 - Jesus teaches things such as loving God, loving your neighbor, forgiveness, repentance, and loving your enemies.
-- Famous teaching include the Sermon on the Mount, the Good Samaritan, and the Prodigal Son.
+- Famous teachings include the Sermon on the Mount, the Good Samaritan, and the Prodigal Son.
 
 17. The Last Supper, Crucifixion, and Resurrection -- around AD 30-33
 - Judas Iscariot was the disciple who betrayed Jesus. He handed Jesus over to the religious leaders in the Garden of Gethsemane by identifying him with a kiss.
