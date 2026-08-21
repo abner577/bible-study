@@ -11,3 +11,18 @@ Like general pattern: Prophets in the old testament --> These propecies were ans
 
 - You have abandoned God, you are worshiping idols, return to God, etc.
 
+### Major vs Minor Prophets
+- Major vs Minor refers to the length of the books. The Minor prophets are just tweleve shorter prophetic books.
+
+### Prophecies that were answered
+1. The Messiah would be born in Bethlehem
+- Micah wroth: A ruler of Israel would come from Bethlemen
+
+2. The king entering Jerusalem on a donkey 
+- The prophet Zechariah, roughly 500 years before Jesus, describes Israel's king coming to Jerusalem:
+
+Zechariah 9:9 The king comes riding on a donkey.
+
+Then near the end of Jesus' ministry, Jesus enters Jerusalem riding on a donkey—the event we now call the Triumphal Entry/Palm Sunday.
+
+- And the new Testament doesnt merely leave you to make the connection yourself, these verses will quote the prophecies.
