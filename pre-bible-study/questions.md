@@ -1,6 +1,5 @@
 ## Open Questions
 
-1. Do all events in the new testament happen during the life of Christ?
 4. Like general pattern: Prophets in the old testament --> These propecies were answered in the new testament? (At least in the major and minor prophets sections of the old testament) Examples of this?
 
 ## Answered
