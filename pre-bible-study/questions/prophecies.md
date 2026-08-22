@@ -5,9 +5,9 @@ Like general pattern: Prophets in the old testament --> These propecies were ans
 ## Answer
 
 - A prophet in the Old Testamenet was someone God specificlaly chose to communicate His message to people. The biblical claim is that God revealed something to them, and they then communicated what God had revealed
-- God communicated with prophets in diff wayts. Sometimes He spoke to them directly, something they received visions, somethings dreams, etc.
+- God communicated with prophets in diff ways. Sometimes He spoke to them directly, something they received visions, dreams, etc.
 
-- One important thing to know is that they didnt JUST predict the future. Yes sometimes they predicted futur events, but a huge portion of what prophets did was actually confront people living at that time. Saying things like:
+- One important thing to know is that they didnt JUST predict the future. Yes sometimes they predicted future events, but a huge portion of what prophets did was actually confront people living at that time. Saying things like:
 
 - You have abandoned God, you are worshiping idols, return to God, etc.
 
@@ -16,7 +16,7 @@ Like general pattern: Prophets in the old testament --> These propecies were ans
 
 ### Prophecies that were answered
 1. The Messiah would be born in Bethlehem
-- Micah wroth: A ruler of Israel would come from Bethlemen
+- Micah wrote: A ruler of Israel would come from Bethlehem
 
 2. The king entering Jerusalem on a donkey 
 - The prophet Zechariah, roughly 500 years before Jesus, describes Israel's king coming to Jerusalem:
