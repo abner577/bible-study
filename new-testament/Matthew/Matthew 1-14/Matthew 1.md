@@ -1,4 +1,4 @@
-Explains the genealogy of Jesus the Messiah, we see some names we now recognize here like Abraham --> Issace --> Jacob --> 12 sons/trives of Israel
+Explains the genealogy of Jesus the Messiah, we see some names we now recognize here like Abraham --> Issac --> Jacob --> 12 sons/tribes of Israel
 
 - The purpose of this is to prove the identity of Jesus in a way as lineage meant alot back then.
 

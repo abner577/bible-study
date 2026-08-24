@@ -1,6 +1,6 @@
 - Matthews purpose is to show that God has kept his ancient promises to Israel through the life, death, and resurreciton of Jesus the Messiah.
 
-- Matthew begins by highlighting that Jesus was the son of David, Israels most famous king, and the song of Abraham, Israels founding patriach.
+- Matthew begins by highlighting that Jesus was the son of David, Israels most famous king, and the son of Abraham, Israels founding patriach.
 
 - The Messiah is shown as reliving the story of Israel (facing temptation in the wilderness, gathering twelve disciple as tweleve new trives, etc.)
 
