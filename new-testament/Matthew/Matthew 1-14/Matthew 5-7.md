@@ -1,26 +1,3 @@
-## Matthew 4
-- The connection between Israel and Jesus is one of the most important things that Matthew is doing in these opening chapters.
-- In the Old Testament, Israel is sometimes described as Gods son. God brings Israel out of Egypt, takes them through the ocean, and then they enter the wilderness where they are tested. But Israel repeatedly fails thos tests.
-
-Matthew deliberately presents Jesus going through a similar pattern:
-
-Israel:
-Egypt → through the water → wilderness → tested
-
-Jesus:
-Egypt as a child → baptism in the Jordan → wilderness → tested
-
-- This isnt accidental, the point is that Jesus is, in a sense reliving Israels story --> but succeeding where Israel failed.
-
-- And Jesus is also demonstrating what kind of Messiah he is going to be: Satan offers him shortcuts, but he rejects all of them
-
-- These 4 first disciples arent necessarily meeting Jesus for the first time here. Other Gospel accounts give additional interactions surronding the disciples. Matthew is emphaiszing the moment where Jesus calls them to leave their ordinary lives and become his followers.
-
-## Summary 
-Matthew 4 establishes Jesus as the faithful Son of God who succeeds where Israel failed, refuses Satan's shortcuts, begins announcing God's kingdom, calls his first disciples, and demonstrates the arrival of that kingdom through his teaching and miracles.
-
----
-
 ## Matthew 5
 The Beatitudes are a set of eight blessings taught by Jesus Christ
 
@@ -57,3 +34,40 @@ The Beatitudes are a set of eight blessings taught by Jesus Christ
 - An important thing is when Jesus uses the extreme language about tearing out your eye or cutting off your hand isnt generally understood as Jesus commanding self-mutilation. Instead he is using intentionally shocking language to say: "Take sin seriously. If something continually leads you into sin, deal with it decisively rather than casually tolerating it."
 
 - Oaths: Basically Jesus is saying to just tell the truth. If you mean yes, say yes. If you mean no, say no. You shouldnt need some elaborate sacred oath to convince people youre finally telling the truth.
+
+---
+
+## Matthew 6
+- The main theme running through this chapter (Chapters 5-7 are apart of what Jesus was saying in the Sermon on the Mount) is that God cares about the inner motive behind what you do, not merely the outward appearance.
+
+- Jesus gives you the warning of when you do these things like give, pray, and fast --> dont turn it into a performance.
+
+- Jesus also repeatedly says: "Truly I tell you, they have received their reward in full" --> Jesus is basically saying: If your goal was to have people notice you and think you're righteous, and they noticed you and praised you, then congratulations—you already got exactly what you were looking for. That's your reward. There will be no additional reward from God for an act supposedly done for God when the real motivation was human admiration.
+
+- And again the point isnt that nobody is ever allowed to see you doing something good, the real concern is the motive behind why you are doing it.
+- Matthew 5 Jesus says to live in such a way that your actions point people toward God.
+- In Matthew 6: The point that is trying to get put across is that we shouldnt perform good actions just so that people will praise you.
+
+#### Prayer Model:
+He's also giving them a model for what prayer should look like.
+
+It includes:
+
+- honoring God,
+- wanting God's will to be done,
+- asking God for your needs,
+- asking for forgiveness,
+- forgiving others,
+- asking God for protection from temptation and evil.
+
+#### Treasure in heaven
+- Jesus contrats: treasures on earth with treasures in heave --> Earthly posessions are temporary, but things done for God have eternal signifance. 
+
+- Jesus also makes a great point that says: "For where your treasure is, there your heart will be also" --> What you value most reveals what really controls your heart. 
+
+### DO not worry
+- Jesus isnt exactly promising that Christians will never lack necessities. Instead, Jesus is teaching his disciples not to live consumsed by anxiety over these things. 
+
+- Then Jesus essentially asks: "If God cares about these things like birds and flowers, dont you think He cares about you even more???" 
+
+- The main point is that you should: “But seek first his kingdom and his righteousness, and all these things will be given to you as well.”

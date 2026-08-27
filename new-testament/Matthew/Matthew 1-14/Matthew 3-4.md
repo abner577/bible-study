@@ -32,3 +32,26 @@ Jesus the Son is in the water, The Holy Spirit descends like a dove, The Father 
 
 ## Summary of chapter:
 John prepares the way → John calls people to genuine repentance → John warns that the Messiah will bring judgment → Jesus arrives → Jesus is baptized → the Father and Holy Spirit identify and affirm Jesus.
+
+## Matthew 4
+- The connection between Israel and Jesus is one of the most important things that Matthew is doing in these opening chapters.
+- In the Old Testament, Israel is sometimes described as Gods son. God brings Israel out of Egypt, takes them through the ocean, and then they enter the wilderness where they are tested. But Israel repeatedly fails thos tests.
+
+Matthew deliberately presents Jesus going through a similar pattern:
+
+Israel:
+Egypt → through the water → wilderness → tested
+
+Jesus:
+Egypt as a child → baptism in the Jordan → wilderness → tested
+
+- This isnt accidental, the point is that Jesus is, in a sense reliving Israels story --> but succeeding where Israel failed.
+
+- And Jesus is also demonstrating what kind of Messiah he is going to be: Satan offers him shortcuts, but he rejects all of them
+
+- These 4 first disciples arent necessarily meeting Jesus for the first time here. Other Gospel accounts give additional interactions surronding the disciples. Matthew is emphaiszing the moment where Jesus calls them to leave their ordinary lives and become his followers.
+
+## Summary 
+Matthew 4 establishes Jesus as the faithful Son of God who succeeds where Israel failed, refuses Satan's shortcuts, begins announcing God's kingdom, calls his first disciples, and demonstrates the arrival of that kingdom through his teaching and miracles.
+
+---
