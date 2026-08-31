@@ -61,7 +61,7 @@ It includes:
 - asking God for protection from temptation and evil.
 
 #### Treasure in heaven
-- Jesus contrats: treasures on earth with treasures in heave --> Earthly posessions are temporary, but things done for God have eternal signifance. 
+- Jesus contrats: treasures on earth with treasures in heaven --> Earthly posessions are temporary, but things done for God have eternal signifance. 
 
 - Jesus also makes a great point that says: "For where your treasure is, there your heart will be also" --> What you value most reveals what really controls your heart. 
 
@@ -71,3 +71,13 @@ It includes:
 - Then Jesus essentially asks: "If God cares about these things like birds and flowers, dont you think He cares about you even more???" 
 
 - The main point is that you should: “But seek first his kingdom and his righteousness, and all these things will be given to you as well.”
+
+---
+
+## Matthew 7
+Simple overview:
+- Do to others what you would have them do to you. For example, dont judge or you till will be judged, dont be a hypocrite and focus on bettering yourself first before attacking/trying to correct others.
+
+- This path that you are taking is a narrow one, it isnt easy and many people fall into the easier and wider path of destruction but stay strong.
+
+- Be wary of false disciples, you can tell by the fruit that they bear, the things that they say.
