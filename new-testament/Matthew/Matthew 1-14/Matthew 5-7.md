@@ -76,7 +76,7 @@ It includes:
 
 ## Matthew 7
 Simple overview:
-- Do to others what you would have them do to you. For example, dont judge or you till will be judged, dont be a hypocrite and focus on bettering yourself first before attacking/trying to correct others.
+- Do to others what you would have them do to you. For example, dont judge or you to will be judged, dont be a hypocrite and focus on bettering yourself first before attacking/trying to correct others.
 
 - This path that you are taking is a narrow one, it isnt easy and many people fall into the easier and wider path of destruction but stay strong.
 
