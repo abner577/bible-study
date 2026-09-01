@@ -17,3 +17,27 @@ Jesus questioned about fasting section:
 
 "The workers are few" section:
 - This is basically setting up Matthew 10. Jesus sees that many people need guidance and teaching, but there are too few people actively spreading Gods message, so he is preparing to send his disiples out to preach.
+
+## Matthew 10:
+Name of the 12 apostles:
+1. Simon (who is called Peter)
+2. Andrew (Simons brother)
+3. James
+4. John (James brother)
+5. Philip
+6. Bartholomew
+7. Thomas
+8. Matthew (the tax collector)
+9. James
+10. Thaddaeus
+11. Simon
+12. Judas Iscariot (the one who betrayed him)
+
+- Jesus officially gives the 12 apostles authority to heal diseases and drive out demons.
+- For this specific mission, Jesus tells them to go primarily to the people of Israel.
+- Expect persecution: Jesus warns them that spreading his message will not always be welcomed. They may be arrested or hated, but they should stay faithful and trust that God will help them know what to say.
+
+- Dont be afraid: Jesus tells them not to fear people who can harm them physically.
+- Jesus may cause division: Jesus isnt saying his goal is to create pointless conflict. Its just that people will response differently to him, sometimes even within families, so following him may require chooisng loyalty to Jesus even when others oppose it.
+
+- Jesus sends the apostles out, tells them what to preach and how to live, warns them that following him can be costly, and tells them not to be afraid
