@@ -13,7 +13,7 @@
 - Jesus continues performing miracles such as healing a paralyzed man, healing a sick woman, and raising a girl from the dead. 
 
 Jesus questioned about fasting section:
-- Jesus is saying that while he is physically with his disciples, its a time of joy, so fasting like people did in times of mourning would be out of place. The "new wine" point means that Jesus is bringing something new that cannot simple be queezed into the old religious patterns and expectations.
+- Jesus is saying that while he is physically with his disciples, its a time of joy, so fasting like people did in times of mourning would be out of place. The "new wine" point means that Jesus is bringing something new that cannot simply be queezed into the old religious patterns and expectations.
 
 "The workers are few" section:
 - This is basically setting up Matthew 10. Jesus sees that many people need guidance and teaching, but there are too few people actively spreading Gods message, so he is preparing to send his disiples out to preach.
