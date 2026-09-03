@@ -18,7 +18,7 @@ In the Bible, the Sabbath means a weekly day of holy rest and cessation from ord
 
 - The Pharisees criticize Jesus’ disciples for picking grain on the Sabbath, because they see it as unlawful work. Jesus explains that God cares more about mercy and genuine need than rigid rule-following, and that He has authority over the Sabbath itself.
 
-- Jesus then withdraws from the Pharisees beacuse he knows that they want to kill him, and tells them not to make a public spectacle about him. Fulfilling Isaiahs prophecy about God`s chosen servant how he will being justic and hope but he does so gently rather than through violence or political conquest.
+- Jesus then withdraws from the Pharisees beacuse he knows that they want to kill him, and tells them not to make a public spectacle about him. Fulfilling Isaiahs prophecy about God`s chosen servant how he will bring justice and hope but he does so gently rather than through violence or political conquest.
 
 - Jesus heals a demon-possessed man, and the Pharisees accuse Him of using Satan’s power. Jesus points out how illogical this is: Satan would not fight against his own kingdom by driving out demons.
 
@@ -36,3 +36,31 @@ A major theme is the growing conflict between Jesus and the religious leaders. J
 
 --- 
 
+## Matthew 13
+A parable is a short, simple story designed to teach a moral, religious, or spiritual lesson
+
+- Jesus speaks in parables to the people to tell them about the kingdom of heaven which fulfills a prophecy.
+
+#### Parable of the Sower
+- Representative of the different types of people in the world. 
+
+- A farmer scatters seed but the seed lands on diff kinds of ground. Jesus explains that the seed is Gods messag,e and the diff soils represent diff ways people respond to it.
+
+- The same message about God’s kingdom can be heard by many people, but what matters is how a person’s heart receives and responds to it.
+
+
+#### Parable of the Weeds
+- A man plants good seed, but an enemy secretly plants weeds among it. Jesus explains that the good seed represents people who belong to God’s kingdom, the weeds represent the wicked, and the harvest represents the final judgment.
+
+#### Parable of the Mustard Seed and Yeast
+- Jesus says the kingdom of heaven is like a tiny mustard seed that eventually grows into a large plant.
+
+- Takeaway is that Gods kingdom may being very small, but it will grow into something far greater.
+
+
+#### Parables of the Hidden Treasre, the Pearl, and the Net
+- **Hidden treasure:** --> A man discovers a treasure hidden in a field and becomes so excited about it that he sells everything he owns in order to buy the field. Jesus is saying that the kingdom of heaven is so valuable that once someone truly understands what they have found in God, nothing else compares to it.
+
+- **The pearl:** --> Basically same message as hidden treasure
+
+- **The Net:** --> A fishing net catches all kinds of fish, and afterward the fishermen separate the good fish from the bad. Jesus explains that this represents the final judgment: God's kingdom is currently gathering many people, but at the end, God will separate the righteous from the wicked.
