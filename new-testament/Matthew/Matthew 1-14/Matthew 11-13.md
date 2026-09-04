@@ -44,7 +44,7 @@ A parable is a short, simple story designed to teach a moral, religious, or spir
 #### Parable of the Sower
 - Representative of the different types of people in the world. 
 
-- A farmer scatters seed but the seed lands on diff kinds of ground. Jesus explains that the seed is Gods messag,e and the diff soils represent diff ways people respond to it.
+- A farmer scatters seed but the seed lands on diff kinds of ground. Jesus explains that the seed is Gods message and the diff soils represent diff ways people respond to it.
 
 - The same message about God’s kingdom can be heard by many people, but what matters is how a person’s heart receives and responds to it.
 
