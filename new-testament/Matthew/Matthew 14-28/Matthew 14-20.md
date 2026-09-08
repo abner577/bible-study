@@ -51,13 +51,23 @@ Transfigured = changed in outward form or appearence, usually into something muc
 
 - Jesus explains how to deal with another believer who sins against you: first speak privately, then involve a few others if necessary, and finally involve the larger church community if the person refuses to listen. The goal is primarily correction and reconciliation, not punishment or embarrassment.
 
-- Forgiveness isnt something like you should keep count of. Point is that God has forgiven us an enourmous debt of sin, we should also be willing to forgive others. 
+- Forgiveness isnt something that you should keep count of. Point is that God has forgiven us an enourmous debt of sin, we should also be willing to forgive others. 
 
 ## Matthew 19
 - eunuch = a physically castrated (without testicles) man.
 
-Continues several of Jesus teachins about marriage, humility, wealth, sacrifice, and what it means to follow God.
+Continues several of Jesus teachings about marriage, humility, wealth, sacrifice, and what it means to follow God.
 
-- Marriage: God`s original design for marriage is a husband and wife becoming one flexh, so marriage must be a lasting covenant the only exception is when sexual immorality occurs.
+- Marriage: God`s original design for marriage is a husband and wife becoming one flesh, so marriage must be a lasting covenant the only exception is when sexual immorality occurs.
 
 - Jesus says its difficult for a rich person to enter the kingdom of heaven, wealth can create a powerful sense or attachment to this world, making it harder for someone to recognize their dependence on God. 
+
+## Matthew 20
+- Indignant = Feeling or showing anger because of something that is unfair or wrong.
+
+- Parable of the workers in the vineyard --> This shows that Gods grace isnt earned based on how long someone has followed him or how much they think they deserve compared with others. 
+
+- Jesus predicts his death and resurrection for the 3rd time.
+
+- The greatest person is the one who humbly serves others. 
+
