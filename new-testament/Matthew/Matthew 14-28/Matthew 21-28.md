@@ -18,6 +18,35 @@
 ## Matthew 23
 - Matthew 23 is one long, very direct condemnation of the teachers of the law and Pharisees for hypocrisy. The main issue is that they teach one thing and live another.
 
-- They look righteous and respectable externally but inwardly they are corrupt. The real solution is to clean the inside first, meaning the feart and character --> then the outward life should follow from that.
+- They look righteous and respectable externally but inwardly they are corrupt. The real solution is to clean the inside first, meaning the heart and character --> then the outward life should follow from that.
 
 - He also calls them "blind guides" --> They obsess over minor details while missing what matters more, such as justice, mercy, faithfulness, and genuine devotion to God. Jesus is pointing out that they are focused on the wrong things and have their priorities backward. 
+
+## Matthew 24
+- In this chapter Jesus is talking about both the destruction of Jerusalem/Temple and the future return of Jesus.
+
+- Some of what Jesus is talking about points towards the coming destruction of Jerusalem and the Temple while other parts clearly point toward His final return and the completion of history.
+
+### End times vs Judgement Day
+- "The end times" is the broader idea of the period leading toward the final completion of Gods plan: turmoil, persection, false messiahs, deception, spread of gospel, and finally Christ`s return
+
+- Judgement day is more specifically the final judgment connected with Christs return, where God judges humanity and fully establishes His kingdom.
+
+- So when Jesus talking about the "coming of the Son of Man", Hes talking about His return, what Christians usually call the Second Coming
+
+---
+
+The major message of Matthew 24 is saying: 
+- Dont panic, dont be deceived, stay faithful and always be ready because you dont know when I will return.
+
+- "No one knows the day or hour" --> This becomes one of the biggest lessons. People will be going about ordinary life just as people were before Noahs flood, when the moment suddenly arrives.
+
+## Matthew 25
+- This chapter continues Jesus teaching from Matthew 24 about His second coming, readiness, faithfullness, and final judgment.
+
+- Parable of the Ten Virgins drives home the point that we dont know when Jesus will return, therefore stay spiritually ready and faithful because Christs return will come when you dont expect it.
+
+- Parable of the Bags of Gold --> The bags more broadly represent what God has entrusted to you: abilities, opportunities, etc. The servants who faitfhully use what they were given are rewarded, while the servant who does nothing wit his gift is condemned. 
+- So this referes to actively serving God with what he has given you, not just passively waiting.
+
+- And then the Sheep and the Goats is a picture of the final judgment where he will seperate the rightous from the unrighteous.
