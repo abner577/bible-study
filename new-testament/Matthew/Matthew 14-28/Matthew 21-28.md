@@ -32,7 +32,7 @@
 
 - Judgement day is more specifically the final judgment connected with Christs return, where God judges humanity and fully establishes His kingdom.
 
-- So when Jesus talking about the "coming of the Son of Man", Hes talking about His return, what Christians usually call the Second Coming
+- So when Jesus is talking about the "coming of the Son of Man", Hes talking about His return, what Christians usually call the Second Coming
 
 ---
 
@@ -46,7 +46,24 @@ The major message of Matthew 24 is saying:
 
 - Parable of the Ten Virgins drives home the point that we dont know when Jesus will return, therefore stay spiritually ready and faithful because Christs return will come when you dont expect it.
 
-- Parable of the Bags of Gold --> The bags more broadly represent what God has entrusted to you: abilities, opportunities, etc. The servants who faitfhully use what they were given are rewarded, while the servant who does nothing wit his gift is condemned. 
+- Parable of the Bags of Gold --> The bags more broadly represent what God has entrusted to you: abilities, opportunities, etc. The servants who faithfully use what they were given are rewarded, while the servant who does nothing with his gift is condemned. 
 - So this referes to actively serving God with what he has given you, not just passively waiting.
 
 - And then the Sheep and the Goats is a picture of the final judgment where he will seperate the rightous from the unrighteous.
+
+## Matthew 26
+- Passover is an annual festival that commemorates God sparing the Israelites from the final plague in Egypt and freeing them from slavery
+
+- The chapter is largely the events surrounding Jesus’ betrayal, arrest, trial, and Peter’s denial, with a repeated emphasis that Jesus knows what is coming and willingly allows it to happen in fulfillment of Scripture.
+
+- High priests plot against Jesus --> Jesus gets anointed --> Judas agrees to betray Jesus for 30 pieces of silver --> Last supper (Jesus predicts betrayal) --> Gethsemane --> Jesus arrested and Judas shows himself --> Jesus meeting with Caiaphas and high priest --> Peter disowns Jesus as it is predicted.
+
+### Gethsemane
+- Jesus takes Peter, James, and John deeper into the garden and becomes "sorrowful and troubled". He tells them: "My soul is overwhelmed with sorrow to the point of death."
+
+- This is showing Jesus very real hman anguish as he approaches the crucifixion. He knows he is about to experience horrifiic suffering, death, and the burden associated with bearing sin.
+
+- Then Jesus prays: "My Father, if it is possible, may this cup be taken from me. Yet not as I will, but as you will."
+
+- The "cup" --> refers to the suffering and judgment he is about to go. This is showing that Jesus is genuinely dreading what is coming, yet voluntarily chooses obedience to the Father anyways.
+
