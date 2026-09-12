@@ -53,6 +53,7 @@ The major message of Matthew 24 is saying:
 
 ## Matthew 26
 - Passover is an annual festival that commemorates God sparing the Israelites from the final plague in Egypt and freeing them from slavery
+- Anointed means to be rubbed or smeared with oil as part of a sacred ceremony, or to be specially chosen for a high position or holy purpose
 
 - The chapter is largely the events surrounding Jesus’ betrayal, arrest, trial, and Peter’s denial, with a repeated emphasis that Jesus knows what is coming and willingly allows it to happen in fulfillment of Scripture.
 
@@ -67,3 +68,33 @@ The major message of Matthew 24 is saying:
 
 - The "cup" --> refers to the suffering and judgment he is about to go. This is showing that Jesus is genuinely dreading what is coming, yet voluntarily chooses obedience to the Father anyways.
 
+## Matthew 27
+- This tells the story of the curucifixion and the resurrection of Jesus christ.
+
+1. Judas hangs himself --> Judas realized Jesus hyas been condemned and is overcome with remorse. And returns 30 pieces of silver where he throws money into the templte and hands himself --> fullfilling the prophecy.
+
+2. Jesus before ulate --> Pilate doesnt seem convinced Jesus deserves deaths and recognizes that the religiosu leaders handed Jesus over out of envy. 
+
+3. Soldiers mock Jesus
+
+4. Jesus is crucified, Simon of Cyrene is made to carry Jesus' cross. Jesus is offered wine mixed with gall. Jesus is crucified between two rebels while the crowd, religious leaders, and others mock him: essentially, “If you're really the Son of God, save yourself.”
+
+5. "My God, my God, why have you forsaken me?"
+- Jesus is quoting the opening words of Psalm 22. That psalm beings with a cry of abandonment and intense suffering but ultimately moves toward trust in God and vindication. At the same time, Jesus' words express the genuine horror of what he is experiencing on the cross.
+
+6. The templte curtian, earthquake, and resurrected people
+- At Jesus death: THe templte curtain tears from top to bottomn, earth shakes, tombs break open, many holy people who had died are raised. 
+
+7. Burial --> guarded tomb --> ressurection
+- Joseph, who had become a disciple of Jesus, asks Pilate for Jesus' body, wraps it in clean linen, and puts it in his own new tomb.
+
+- The chief priests and Pharisees then remember that Jesus said he would rise after three days, so they ask Pilate to secure the tomb. Guards are posted and the stone is sealed.
+
+## Matthew 28
+- There is an earthquake, an agel rolls the stone away, and the guards become terrified "like dead men". The angle tells the women: Jesus is not here, He has risen, just as he said. 
+
+- Then the guards report what happened to the chief priests. Instead of accepting the resurrection, the religious leaders pay the soldiers to say that Jesus' disciples stole his body while they were sleeping.
+
+Finally, Matthew ends with Jesus meeting the disciples in Galilee and giving them the Great Commission:
+
+Go and make disciples of all nations, baptize them, and teach them to obey everything Jesus commanded.
