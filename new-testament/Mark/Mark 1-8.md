@@ -5,13 +5,44 @@ Order of disciples:
 - Simon Peter and Andrew are called first, followed by James and John
 
 ## Mark 2
-- Jesus goes throughout and the same events from Matthew are being retold, things like Jesus healing a paralyzed man and going acrross the lands and preaching the word and performing miracles.
+- Jesus goes throughout and the same events from Matthew are being retold, things like Jesus healing a paralyzed man and going across the lands and preaching the word and performing miracles.
 
-- One of the main points he is making is challenging the idea thyat religiosu rules and traditions are more important than the purpose behind them.
+- One of the main points he is making is challenging the idea that religious rules and traditions are more important than the purpose behind them.
 
 - The Sabbath section has a similar message. Jesus isnt saying that the Sabbath is meaningless but he is correcting the way the religious leaders had turned it into a rigid burden. His key statement is: "The Sabbath was made to benefit people, not people to serve the Sabbath".
 
 ## Mark 3
-- Jesus appoints the Tweleve, continues healing people, and the religiosu leaders accuse him of casting out demons by Satan`s power. Jesus points out the contradiction: "If Satana is fighting against Satan, his own kingdom would collapse."
+- Jesus appoints the Tweleve, continues healing people, and the religious leaders accuse him of casting out demons by Satan`s power. Jesus points out the contradiction: "If Satan is fighting against Satan, his own kingdom would collapse."
 
 - And then once again is warning about blasphemy against the Holy Spirit is extremely serious.
+
+## Mark 4
+Recounting again events that were described in Matthew.
+
+- Jesus talks to the crowds at the lake only in parables and only when he is alone with his disciples does he explain the parables.
+
+**Parable of the Sower**
+- A farmer goes out to show his seed, but as he scatters the seed, where the different seeds fall on the path is representative of the different types of people when they receive the word.
+
+- Some seeds are sown on rocky places, and so they burst up fast but since they have no root, they only last a short time.
+
+- Some seeds sown among thorns are like people who hear the word but the worries of this life and desires for other things come in and choke the word.
+
+- Other seed sown on good soil, produce a crop some 30,60,100x what was sown.
+
+**Parable of the Mustard Seed**
+- The kingdom of God will be widespread throughout the world, even though its small at that current moment in time.
+
+**Parable of the Growing Seed**
+- The parable of the growing seed in Mark 4:26–29 is basically saying that God’s kingdom grows in ways people cannot fully see or control.
+
+- Jesus also once again calms the storm.
+
+## Mark 5
+- Same story about driving many impure spirits from a man that lived near the tombs that couldnt be chained down and driving those spirits into a heard of two-thousand pigs.
+
+- The whole town was shocked as the word spread, then Jesus raises a dead daughter of one of the synagogue leaders in town named Jairus.
+
+- Its important to note that he only took the father, mother, and Peter, James, and John to see this. Once he had raised the daughter from the dead, he asked them to not say anything of this.
+
+- He also healed another sick woman as she just touched his clothes and was healed. 
