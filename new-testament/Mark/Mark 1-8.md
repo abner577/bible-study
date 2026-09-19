@@ -52,7 +52,7 @@ Once again retelling the same things that we have read before:
 - Jesus sends out the tweleve with only a staff no food, no bag, no money, if a town fails to accept you then shake dust out on them. 
 
 **Prophet without Honor section:**
-- Jesus is pointing out that people who are most familiar with someone cna sometimes be the least willing to recognize who that person truly is. People in Nazareth knew Jesus as the carpenter. So the key idea is that familiarity can create disbelief.
+- Jesus is pointing out that people who are most familiar with someone can sometimes be the least willing to recognize who that person truly is. People in Nazareth knew Jesus as the carpenter. So the key idea is that familiarity can create disbelief.
 
 - Then John the Baptist gets beheaded because Herodias the wife of Herods late brother, told her daughter to ask for Herods head. 
 
@@ -61,14 +61,27 @@ Once again retelling the same things that we have read before:
 - Then Jesus walks on water to his disciples as well 
 
 ## Mark 7
-Why does Jesus sometimes tell people or demons not to spread th new about him yet?
+Why does Jesus sometimes tell people or demons not to spread the news about him yet?
 - This is often called the "Messianic secret" --> The reasoning is because although Jesus did want people to know who he was, he wanted that understanding to unfold on the right terms at the right time. 
 - If the word spread mainly because of spectacular miracles, crowds could misunderstand him as just a miracle-worker. 
 
-- He didnt want it to turn it into uncontrolled publicity before people can actually understand what my mission actually is. 
+- He didnt want it to turn it into uncontrolled publicity before people can actually understand what his mission actually is. 
 
 Important notice:
 In the that which defiles section:
 - Jesus says that what goes into a person does not defile them, but what comes out does, he means food does not make someone morally unclean before God; sinful thoughts, desires, words, and actions coming from the heart do.
 
 - Mark specifically says that when Jesus does this, he is declaring all foods clean. So Jesus is dimissing some of the Old Testament traditions as human rules.
+
+## Mark 8
+Same retelling of events where Jesus feeds the crowd of four thousand splitting bread and fish again.
+
+- Jesus warns the disciples about the yeast of the pharisees and Herod where he isnt actually talking about yeast but rather their faith and beliefs that they produce and practice.
+
+- Then Peter declares that Jesus is the Messiah and Jesus predits his death.
+
+- Then at the end we get an important subsection: "The Way of the Cross" which had parts of Tuckers message on the first YA that I went to.
+
+- And that is Jesus calls his followers to deny themselves and take up their cross to follow him, you are either all in or all out. Thats biblical christianity. Because those people back then had no choice, they were going to have no money no food, nothing.
+
+- And then in verse 36 he says what ghood is it for someone to gain the whole world, yet forfeit their soul.
