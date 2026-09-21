@@ -78,10 +78,10 @@ Same retelling of events where Jesus feeds the crowd of four thousand splitting 
 
 - Jesus warns the disciples about the yeast of the pharisees and Herod where he isnt actually talking about yeast but rather their faith and beliefs that they produce and practice.
 
-- Then Peter declares that Jesus is the Messiah and Jesus predits his death.
+- Then Peter declares that Jesus is the Messiah and Jesus predicts his death.
 
 - Then at the end we get an important subsection: "The Way of the Cross" which had parts of Tuckers message on the first YA that I went to.
 
 - And that is Jesus calls his followers to deny themselves and take up their cross to follow him, you are either all in or all out. Thats biblical christianity. Because those people back then had no choice, they were going to have no money no food, nothing.
 
-- And then in verse 36 he says what ghood is it for someone to gain the whole world, yet forfeit their soul.
+- And then in verse 36 he says what good is it for someone to gain the whole world, yet forfeit their soul.
