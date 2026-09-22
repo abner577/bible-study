@@ -21,3 +21,27 @@
 - Jesus storms the temple in Jerusalem and condems them because they have turned a place that was meant for prayer and worship into a place that has become entangled with explotation, commerce, and corruption.
 
 - Jesus also says to have real faith in God when we pray and not confidence in our own wishes
+
+## Mark 12
+- Parable of the tenants --> This stronglyt points towrads Jesus own rejection and death
+
+- Jesus says the greatest commandments to be the one where you must love God with everything that you have, and then loving your neighbor as yourself. Again a contrast is made here between looking "religious" and actually living faithfully.
+
+- The widows offering: Jesus doesnt measure generoisty by the raw dollar amount.
+
+## Mark 13
+- Mark 13 is talking about the end of the world (i.e. second coming of Jesus as well as destructive events that will happen soon in the biblical timeline).
+
+- We being with something that will happen very soon and that is the destruction of the temple in Jerusalem.
+
+- Then he talks about wards, earthquakes, persecution, and flase messiahs and prophets and terrible suffering. Some of this fits the period leading up to Jerusalems destruction and the persection of early christians.
+
+- But thenn Jesus also talks about the Son of Man coming in cloud with great power and glory, sending the angels and gathering his people.
+
+So you can think of Mark 13 as having two layers:
+
+A coming historical judgment — Jerusalem and the temple will be destroyed, Jesus’ followers will face persecution, and there will be false teachers and chaos.
+
+- The important thing to remember is that Jesus is not giving a date for these events. No one knows the day or hour, so the message isnt to be good when this moment is happening so you can get into the kingdom.
+
+- Instead, stay faithful, stay alert and be ready. Jesus will return stay ready, be on your best behavior.
