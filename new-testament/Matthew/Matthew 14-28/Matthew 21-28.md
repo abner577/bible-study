@@ -62,7 +62,7 @@ The major message of Matthew 24 is saying:
 ### Gethsemane
 - Jesus takes Peter, James, and John deeper into the garden and becomes "sorrowful and troubled". He tells them: "My soul is overwhelmed with sorrow to the point of death."
 
-- This is showing Jesus very real hman anguish as he approaches the crucifixion. He knows he is about to experience horrifiic suffering, death, and the burden associated with bearing sin.
+- This is showing Jesus very real human anguish as he approaches the crucifixion. He knows he is about to experience horrifiic suffering, death, and the burden associated with bearing sin.
 
 - Then Jesus prays: "My Father, if it is possible, may this cup be taken from me. Yet not as I will, but as you will."
 
