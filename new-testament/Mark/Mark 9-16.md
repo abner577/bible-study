@@ -53,4 +53,24 @@ A coming historical judgment — Jerusalem and the temple will be destroyed, Jes
 
 - He knows what is comming is terrible but is willing to be obedient to God and will trust in him that his will is better.
 
-## Mark 15
+## Mark 15-16
+When Jesus cries, “My God, my God, why have you forsaken me?”, he is quoting the opening words of Psalm 22 First, it expresses the real depth of Jesus’ suffering: he is experiencing abandonment and the full horror of the crucifixion. Second, Psalm 22 itself begins in despair but ends in trust and vindication. So these words express the terrible suffering he is undergoing while also pointing back to a psalm that ultimately ends with God’s deliverance.
+
+### Friday-Sunday Timeline of Jesus ressurection
+**Friday:** Jesus is tried, crucified, dies, and is buried before sunset
+
+**Saturday:** Jesus body remains in the tomb, this is the Jewish Sabbath (weekly day of rest and spiritual celebration)
+
+**Sunday:** Jesus rises from the dead.
+
+**Following days/weeks:** more appearances in Jerusalem and Galilee
+
+**Later:** Jesus ascends to heaven
+
+- Early Sunday Morning, Mary Magdalene, Mary the mother of James, and Salome go to the tomb expecting to anoint Jesus body. Instead they discvoert that the stone has been rolled away and the tomb is empty. 
+
+- A messenger tells them that Jesus has rise, he isnt here, and to go tell his disciples and Peter that he is going ahead of them into Galilee.
+
+- Later that same day, Jesus appears to 2 disciples traveling on the road, that evening JEsus appears to a group of his discple in Jerusalem. 
+
+- Then the disciples travel norht to Galilee, just as Jesus had told them. Jesus appears to them there as well. 
