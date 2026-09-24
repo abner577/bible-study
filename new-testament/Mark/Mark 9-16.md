@@ -67,10 +67,10 @@ When Jesus cries, “My God, my God, why have you forsaken me?”, he is quoting
 
 **Later:** Jesus ascends to heaven
 
-- Early Sunday Morning, Mary Magdalene, Mary the mother of James, and Salome go to the tomb expecting to anoint Jesus body. Instead they discvoert that the stone has been rolled away and the tomb is empty. 
+- Early Sunday Morning, Mary Magdalene, Mary the mother of James, and Salome go to the tomb expecting to anoint Jesus body. Instead they discover that the stone has been rolled away and the tomb is empty. 
 
-- A messenger tells them that Jesus has rise, he isnt here, and to go tell his disciples and Peter that he is going ahead of them into Galilee.
+- A messenger tells them that Jesus has risen, he isnt here, and to go tell his disciples and Peter that he is going ahead of them into Galilee.
 
-- Later that same day, Jesus appears to 2 disciples traveling on the road, that evening JEsus appears to a group of his discple in Jerusalem. 
+- Later that same day, Jesus appears to 2 disciples traveling on the road, that evening Jesus appears to a group of his discple in Jerusalem. 
 
-- Then the disciples travel norht to Galilee, just as Jesus had told them. Jesus appears to them there as well. 
+- Then the disciples travel north to Galilee, just as Jesus had told them. Jesus appears to them there as well. 
