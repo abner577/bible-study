@@ -69,12 +69,35 @@ First, Jesus uses the picture of a bridegroom at a wedding. His point is: while 
 Here we get the sermon on the mount again where he tells the Blessings and Woes:
 - The blessings and woes are basically showing a reversal of values between the present world and the kingdom of God.
 
-- Then the woes are warning is toward people who are comfortable and satisfied with this world while ignoring God and the needs of others. 
+- Then the woes are warning toward people who are comfortable and satisfied with this world while ignoring God and the needs of others. 
 
 - Then he talks about numerous other things like having love for your enemies because merely loving just the people who also love you, sinners do the same, you are no different.
 
-- He also says Do not judge, do not condem, always forgive, do as you would like other to do to you.
+- He also says Do not judge, do not condem, always forgive, do as you would like others to do to you.
 
 - Then he also warns against trying to judge or correct others when your heart itself is in a bad place and youre actions arent coming as a good cause.
 
-- Then he says that no good tree bears bad fruit nor does a bad tree bear good fruity --> Meaning that a good man brings good things out of the good stored up in his heart while an evil man brings evil things out of the evil stored up in his heart. 
+- Then he says that no good tree bears bad fruit nor does a bad tree bear good fruit --> Meaning that a good man brings good things out of the good stored up in his heart while an evil man brings evil things out of the evil stored up in his heart. 
+
+## Luke 7
+- The centurion is a strong example of faith coming from an unexpected person, he trusts Jesus authority so much that he believes Jesus doesnt even need to physically come to his house to heal his servant.
+
+- Then the line about John being great but "the least in the kingdom of God is greater than he" isnt like an earth-to-heaven comparison, instead what is being said is that John stands at the climax and pinnacle of the old ear, preparing the way for the Messiah.
+
+- Hes very important but someone who actually participates in the kingdom Jesus is bringing has an even greate privilege.
+
+- Then the piece of the children in the marketplace means that the people of this generation are impossible to satisfy, simply because they dont want to accept and respond to Gods message. 
+
+- Then Jesus makes a good point that the person who realizes how much they have been forgiven tends to respond with greater love and gratitude. 
+
+## Luke 8
+- Mainly materials weve already seen in Matthew and Mark, we see the parable of the sower, and we see the lamp on a stand section.
+
+- Where this is saying that faith and trust shouldnt be hidden, but its really emphasizing that Gods truth is meant to be revealed and listened to carefullly. 
+
+- Then the rest of the chapter keeps demonstrating Jesus authority: 
+
+Calming the storm → authority over nature.
+The demon-possessed man → authority over evil spirits.
+The bleeding woman → authority over sickness.
+Jairus’ daughter → authority even over death.
