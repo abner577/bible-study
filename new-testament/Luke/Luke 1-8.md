@@ -82,16 +82,14 @@ Here we get the sermon on the mount again where he tells the Blessings and Woes:
 ## Luke 7
 - The centurion is a strong example of faith coming from an unexpected person, he trusts Jesus authority so much that he believes Jesus doesnt even need to physically come to his house to heal his servant.
 
-- Then the line about John being great but "the least in the kingdom of God is greater than he" isnt like an earth-to-heaven comparison, instead what is being said is that John stands at the climax and pinnacle of the old ear, preparing the way for the Messiah.
-
-- Hes very important but someone who actually participates in the kingdom Jesus is bringing has an even greate privilege.
+- Then the line about John being great but "the least in the kingdom of God is greater than he" isnt like an earth-to-heaven comparison, instead what is being said is that John stands at the climax and pinnacle of the old era, preparing the way for the Messiah. Hes very important but someone who actually participates in the kingdom Jesus is bringing has an even greater privilege.
 
 - Then the piece of the children in the marketplace means that the people of this generation are impossible to satisfy, simply because they dont want to accept and respond to Gods message. 
 
 - Then Jesus makes a good point that the person who realizes how much they have been forgiven tends to respond with greater love and gratitude. 
 
 ## Luke 8
-- Mainly materials weve already seen in Matthew and Mark, we see the parable of the sower, and we see the lamp on a stand section.
+- Mainly material weve already seen in Matthew and Mark, we see the parable of the sower, and we see the lamp on a stand section.
 
 - Where this is saying that faith and trust shouldnt be hidden, but its really emphasizing that Gods truth is meant to be revealed and listened to carefullly. 
 
