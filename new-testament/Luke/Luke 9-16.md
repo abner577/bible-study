@@ -70,7 +70,7 @@ Jesus reiterates the same point with the Queen of the South and Solomon:
 - His point about interpreting the times --> Jesus essentially asks: "If you're capable of interpreting obvious signs in nature, why can't you recognize what is happening spiritually right in front of you?"
 
 ## Luke 13
-**Parable of the fig tree and its connection to repentance** --> When Jesus tells the parable of the fig tree int he vineyeard, the owner comes looking for fruit and finds none. He wants to cut the tree down, but the gardener says, essentially, “Give it one more year. Let me care for it, fertilize it, and see whether it produces fruit.”
+**Parable of the fig tree and its connection to repentance** --> When Jesus tells the parable of the fig tree in the vineyeard, the owner comes looking for fruit and finds none. He wants to cut the tree down, but the gardener says, essentially, “Give it one more year. Let me care for it, fertilize it, and see whether it produces fruit.”
 
 - The point is that God is patient and gives people time and opportunity to repent, but that opportunity isnt endless. The fig tree represents a person that has been given time to produce the fruit of repentance. 
 
@@ -86,7 +86,7 @@ Jesus reiterates the same point with the Queen of the South and Solomon:
 - Then Jesus is encouraging generosity toward people who cannot benefit you in return. The deeper principle is that you shuld do good because it is good, not because you expect repayment.
 
 #### Parable of the great banquet
-- The banquet represents the kingdom of God, and the host represents God. The invite guests keep making excuses, none of these are evil, the problem is that they allow ordinary concerns to become excuses for rejecting the invitation.
+- The banquet represents the kingdom of God, and the host represents God. The invited guests keep making excuses, none of these are evil, the problem is that they allow ordinary concerns to become excuses for rejecting the invitation.
 
 - The point is that God is inviting people into His kingdom, but many who assume they have a place may reject that invitation through indifference or misplaced priorities, while unexpected outsiders may gladly accept it.
 
@@ -94,3 +94,29 @@ Jesus reiterates the same point with the Queen of the South and Solomon:
 
 The idea is:
 Your loyalty to Jesus must be so great that every other loyalty comes second.
+
+## Luke 15
+The main theme of Luke 15 is that God deeply values the recovery of someone who is lost, and there is joy when a sinner genuinely repents and returns to Him. 
+
+- Jesus tells these stories as a response to the Pharisees and teachers of the law that are criticizing him for welcoming sinners and eating with them. 
+
+- The lost son / prodigal son goes deeper than the first two. The younger son represents someone who openly rebels, wastes what he has, hits rock bottom, and eventually returns in repentance. The father’s response shows God’s mercy and willingness to restore the repentant sinner. The father does not merely tolerate him coming back — he celebrates it.
+
+But the older brother is just as important. He represents the attitude of the Pharisees. He stayed outwardly obedient, but he is angry that the father shows mercy to his sinful brother.
+
+That exposes another kind of lostness:
+- You can be outwardly religious and still be far from God in your heart because of pride, resentment, and self-righteousness. The older brother thinks that he deserves more because he behaved better.
+
+## Luke 16
+Shrewdness = having clear-eyed practical wisdom and sharp discernment to navigate a difficult world.
+
+Parable of the shrewd manager --> The manager is about to lose his job, so he realizes he needs to think ahead. He reduces the debts that people owe his master so that, once he is fired, those people will feel indebted to him and may help him later.
+
+- Jesus is trying to convey: "If worldly people can be this strategic about temporary things, how much more should Gods people think wisely about eternal things."
+
+- Money is a tool entrusted to you. Use it wisely, faithfully, and with eternity in mind dont let it become the thing you live for. 
+
+Then the story about the rich man and Lazarus
+- The rich mains problem is that he lives in luxury while Lazarus is literally suffering at his gate, and he shows no mercy or concern. So his wealth exposes what his heart is centered on. 
+
+- Then the roles become reversed after death, Lazarus is comforted, and the rich man is sent toward Hades. 
