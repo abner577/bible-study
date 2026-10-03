@@ -117,6 +117,6 @@ Parable of the shrewd manager --> The manager is about to lose his job, so he re
 - Money is a tool entrusted to you. Use it wisely, faithfully, and with eternity in mind dont let it become the thing you live for. 
 
 Then the story about the rich man and Lazarus
-- The rich mains problem is that he lives in luxury while Lazarus is literally suffering at his gate, and he shows no mercy or concern. So his wealth exposes what his heart is centered on. 
+- The rich mans problem is that he lives in luxury while Lazarus is literally suffering at his gate, and he shows no mercy or concern. So his wealth exposes what his heart is centered on. 
 
 - Then the roles become reversed after death, Lazarus is comforted, and the rich man is sent toward Hades. 
