@@ -1,5 +1,5 @@
 ## Introduction to John
-- Although the Gospel of John tells the story of the same Jesus about, it approaches the story differently. John focuses much more on who Jesus is, His relationship with God the Father, and why believing in Him matters for eternal life.
+- Although the Gospel of John tells the story of the same Jesus, it approaches the story differently. John focuses much more on who Jesus is, His relationship with God the Father, and why believing in Him matters for eternal life.
 
 1. Who was John?
 - The Gospel is attributed to John the Apostle, one of Jesus twelve disciples. He was originally a fisherman before Jesus called him to become a disciple.
@@ -31,6 +31,3 @@ John wants his readers to understand three things:
 **1. Jesus is the Messiah:** The promise Savior spoken about throughout the Old Testament
 **2. Jesus is the Son of God: His identity goes beyond being a prophet or miracle worker. He is divine.**
 **3. Believing in Jesus brings eternal life: Through faith in Him, people can receive salvation.**
-
-
-
