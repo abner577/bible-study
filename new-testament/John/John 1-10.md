@@ -39,7 +39,7 @@ Zeal = an intense, firey passion, devotion for Gods honor, trut, and commandment
 #### Jesus teaching Nicodemus (1-15)
 - Jesus is explaining that we cannot earn salvation through our own good deeds. We need spiritual rebirth through the Holy Spirit.
 
-In Verse 8: Jesus compares the Holy Spirit to the win because: we cannot see the wind itself, but we can see and feel its effects. Similarly we cannot physically see the Holy Spirit, but we can recognize His work in peoples lives. Main point is that the Holy Spirit works in ways beyond our human understanding.
+In Verse 8: Jesus compares the Holy Spirit to the wind because: we cannot see the wind itself, but we can see and feel its effects. Similarly we cannot physically see the Holy Spirit, but we can recognize His work in peoples lives. Main point is that the Holy Spirit works in ways beyond our human understanding.
 
 #### Salvation through Jesus (16-21)
 - God loves humanity and sent His Son to save the world. Eternal life comes through believing in Jesus, not through good deeds. Those who reject Jesus remain under condemnation. 
@@ -48,3 +48,50 @@ In Verse 8: Jesus compares the Holy Spirit to the win because: we cannot see the
 John's disciples notice that Jesus is attracting followers and baptizing, seemingly competing with John's ministry. However, John reminds them that his purpose was never to become the Messiah, but to prepare the way for Him.
 
 - He says that Jesus must become greater; while he becomes less. And then the final verses reinforce that Jesus comes from heaven and possesses authroity above everyone else. While, John is only human.
+
+## John 4
+- Reap has 2 definitions
+
+1. Literal (Agricultural meaning)
+- Cutting and gather grain crops from a field using a tool.
+
+2. Figurative
+- Gaining, winning, or earning something as a direct result of previous actions or efforts.
+
+Chapter summary: Jesus speaks with a Samaritan woman about the living water that brings eternal life, leading many Samaritans to believe in Him. He then teaches His disciples about spreading God's message and later heals an official's son in Galilee.
+
+- Jesus speaking with a Samaritan is surprisingly because he is crossing cultural and social boundaries.
+
+- Then Jesus speaks about how the water that he gives will lead people to not be thirst. Because it will satisfy us Spiritually, he gives us lasting hope and purpose, but this doesnt mean that we wont want other things as well.
+
+- The Samaritan woman asks about the correct location for worship because Samaritans worshiped on Mount Gerizim, while Jews worshiped in Jerusalem. Jesus explains that true worship will no longer depend on a particular geographical location.
+
+- The point about the fields being ripe for harvest: The harvest represents people who are ready to receive God's message and believe in Jesus. Jesus is telling His disciples that they shouldn't wait. The opportunity to bring people to God is already in  front of them.
+
+#### The sower and the reaper
+- This is referring to different roles in spreading Gods message.
+The sower is someone who plants the seeds of faith bu sharing Gods message
+The reaper is someone who sees the results when people respond to that message.
+
+## John 5
+Chapter Summary: Jesus heals a disabled man on the Sabbath, leading to conflict with the Jewish religious leaders. Jesus then explains His divine authority, His relationship with the Father, and His power to grant eternal life and judge humanity
+
+- Jesus heals at the pool and He doesn't seek public recognition for the miracle and quietly slips away into the crowd.
+
+#### The authority of the Son
+- Jesus is establishing that he possesses divine authority given to Him by the Father.
+
+- The Son has authority to judge humanity, God the Father doesnt judge. And then another big point is that Faith brings eternal life: Those who believe in Jesus and the Father who sent Him have crossed from spiritual death into eternal life. 
+
+Jesus says that a time is coming when everyone in their graves will hear His voice and come out, with different outcomes for those who have done good and those who have done evil.
+This is referring to the future resurrection and final judgment, not specifically to Jesus' crucifixion.
+
+#### Testimonies about Jesus
+- Jesus challenges the religiosu leaders because they claim to believe in God and the Scriptures, yet reject the very person those Scriptures point toward. He identifies several witnesses supporting his identity.
+
+- John the Baptist, who testified about Jesus.
+- Jesus' miracles, which demonstrate that the Father sent Him.
+- God the Father, who testifies concerning His Son.
+- The Scriptures and Moses, whose writings point toward Jesus.
+
+The irony is that they diligently study Scripture in search of eternal life but reject Jesus, whom Scripture points toward as the source of that life.
