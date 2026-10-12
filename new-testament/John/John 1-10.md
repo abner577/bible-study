@@ -60,9 +60,9 @@ John's disciples notice that Jesus is attracting followers and baptizing, seemin
 
 Chapter summary: Jesus speaks with a Samaritan woman about the living water that brings eternal life, leading many Samaritans to believe in Him. He then teaches His disciples about spreading God's message and later heals an official's son in Galilee.
 
-- Jesus speaking with a Samaritan is surprisingly because he is crossing cultural and social boundaries.
+- Jesus speaking with a Samaritan is surprising because he is crossing cultural and social boundaries.
 
-- Then Jesus speaks about how the water that he gives will lead people to not be thirst. Because it will satisfy us Spiritually, he gives us lasting hope and purpose, but this doesnt mean that we wont want other things as well.
+- Then Jesus speaks about how the water that he gives will lead people to not be thirsty ever again. Because it will satisfy us Spiritually, he gives us lasting hope and purpose, but this doesnt mean that we wont want other things as well.
 
 - The Samaritan woman asks about the correct location for worship because Samaritans worshiped on Mount Gerizim, while Jews worshiped in Jerusalem. Jesus explains that true worship will no longer depend on a particular geographical location.
 
@@ -70,7 +70,7 @@ Chapter summary: Jesus speaks with a Samaritan woman about the living water that
 
 #### The sower and the reaper
 - This is referring to different roles in spreading Gods message.
-The sower is someone who plants the seeds of faith bu sharing Gods message
+The sower is someone who plants the seeds of faith by sharing Gods message
 The reaper is someone who sees the results when people respond to that message.
 
 ## John 5
@@ -95,3 +95,27 @@ This is referring to the future resurrection and final judgment, not specificall
 - The Scriptures and Moses, whose writings point toward Jesus.
 
 The irony is that they diligently study Scripture in search of eternal life but reject Jesus, whom Scripture points toward as the source of that life.
+
+## John 6
+- Chapter Summary: Jesus feeds the 5,000 and walks on water before teaching that He is the Bread of Life, the source of eternal life. His teachings are difficult for many to accept, causing several disciples to abandon Him.
+
+#### Jesus is the Bread of Life (25-40)
+- When Jesus says not to work for food that spoils, He's contrasting temporary physical needs with eternal spiritual needs.
+- Physical food: Sustains our bodies temporarily, but we'll eventually become hungry again.
+- Spiritual food (Jesus): Gives us eternal life through faith in Him.
+- Jesus isn't saying we should neglect physical needs, but that our relationship with God should take priority over temporary worldly concerns.
+
+#### Eating Jesus flesh and drinking His blood (41-59)
+- Jesus is the source of spiritual liufe, and we must depend on Him to receive eternal life.
+
+- Jesus also repeatedly says this throughout the chapter: "I will raise them up at the last day" --> Jesus is promising that those who believe in Him will receive eternal life and be raised at the final resurrection.
+
+## John 7
+- Chapter Summary: Jesus attends the Festival of Tabernacles in Jerusalem, where He teaches publicly and faces increasing opposition from religious leaders. People are divided over whether He is the Messiah, while Jesus continues emphasizing His divine authority and offering eternal life
+
+**"My time has not yet come"** --> Jesus repeatedly emphasizes that His mission unfolds according to the Fathers timing, not human expectations. Nothing will happen that will deviate from Gods plan. 
+
+#### The division over Jesus identity
+- People were confused because of their expectations about the Messiah. Some believed Jesus couldn't be the Messiah because He came from Galilee, whereas the Scriptures indicated that the Messiah would come from Bethlehem and David's family. The irony is that Jesus actually was born in Bethlehem, as we've read in Matthew and Luke.
+
+- We once again see this metaphor of thirst representing humanitys spiritual need. Jesus will satisy our deepest spirirtual needs fully.
