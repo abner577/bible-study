@@ -106,7 +106,7 @@ The irony is that they diligently study Scripture in search of eternal life but 
 - Jesus isn't saying we should neglect physical needs, but that our relationship with God should take priority over temporary worldly concerns.
 
 #### Eating Jesus flesh and drinking His blood (41-59)
-- Jesus is the source of spiritual liufe, and we must depend on Him to receive eternal life.
+- Jesus is the source of spiritual life, and we must depend on Him to receive eternal life.
 
 - Jesus also repeatedly says this throughout the chapter: "I will raise them up at the last day" --> Jesus is promising that those who believe in Him will receive eternal life and be raised at the final resurrection.
 
@@ -119,3 +119,25 @@ The irony is that they diligently study Scripture in search of eternal life but 
 - People were confused because of their expectations about the Messiah. Some believed Jesus couldn't be the Messiah because He came from Galilee, whereas the Scriptures indicated that the Messiah would come from Bethlehem and David's family. The irony is that Jesus actually was born in Bethlehem, as we've read in Matthew and Luke.
 
 - We once again see this metaphor of thirst representing humanitys spiritual need. Jesus will satisy our deepest spirirtual needs fully.
+
+## John 8
+Chapter summary: Jesus continues teaching in the temple courts, boldly declaring that He comes from the Father and speaks the truth. He challenges the religious leaders for rejecting Him and explains that those who follow Him will receive eternal life.
+
+There are a couple of things worth highlighting:
+- Jesus is the Light of the World: Those who follow Him will no longer walk in spiritual darkness.
+- The truth will set uo free: Jesus explains that everyone who sins is a slave to sin.
+
+- We also have an extra passage at the beginning of John 8 where a woman is caught in adultery. The people in the temple want to stone her as it is written in "Moses Law". But Jesus says okay, whoever is free of sin can do this, and everyone slowly walks away. I think this speaks volumes into how we cant believe we are better than someone or have the right to condem or judge them. It also shows Jesus mercy and call to repentance which is beautiful.
+
+## John 9
+Chapter summary: Jesus heals a man who was blind from birth, but the Pharisees refuse to accept that Jesus comes from God. The chapter contrasts the growing faith of the healed man with the spiritual blindness of the religious leaders.
+
+- The point that Mircales dont guarantee faith has really shown up in this chapter and it feels like we are connecting the dots from this idea that we have seen in previous books:
+- Miracles don't guarantee faith: In Luke 16:31, where Abraham says that if people refuse to listen to Moses and the prophets, they won't be convinced even if someone rises from the dead. John 9 illustrates a similar principle.
+
+- The blind man exposes the Pharisees inconsistency in their argument. They claim that Jesus is a sinner, yet Jesus has performed extraordinary healing that points toward Gods power. And that if what the Pharisees are saying is really true that he is Sinner and is away from God, he could never do these things.
+
+#### Spiritual blindness
+Jesus contrasts two kinds of blindness:
+- Physical blindness: The man couldn't see, but Jesus restored his sight.
+- Spiritual blindness: The Pharisees could physically see, but they refused to recognize the truth about Jesus.
