@@ -125,7 +125,7 @@ Chapter summary: Jesus continues teaching in the temple courts, boldly declaring
 
 There are a couple of things worth highlighting:
 - Jesus is the Light of the World: Those who follow Him will no longer walk in spiritual darkness.
-- The truth will set uo free: Jesus explains that everyone who sins is a slave to sin.
+- The truth will set you free: Jesus explains that everyone who sins is a slave to sin.
 
 - We also have an extra passage at the beginning of John 8 where a woman is caught in adultery. The people in the temple want to stone her as it is written in "Moses Law". But Jesus says okay, whoever is free of sin can do this, and everyone slowly walks away. I think this speaks volumes into how we cant believe we are better than someone or have the right to condem or judge them. It also shows Jesus mercy and call to repentance which is beautiful.
 
@@ -141,3 +141,28 @@ Chapter summary: Jesus heals a man who was blind from birth, but the Pharisees r
 Jesus contrasts two kinds of blindness:
 - Physical blindness: The man couldn't see, but Jesus restored his sight.
 - Spiritual blindness: The Pharisees could physically see, but they refused to recognize the truth about Jesus.
+
+## John 10
+Chapter summary: Jesus describes Himself as the Good Shepherd who protects, guides, and sacrifices His life for His sheep. He emphasizes His relationship with His followers and the Father,
+
+- Jesus is the gate: He is the way to salvation. Those who enter through Him receive eternal life. You cannot lose your salvation.
+- One flock, one shepard: This speaks about unity in Christianity, there are many different denominations and we have these arguments about who is right and whatever, but at the end of the day we need to remember that we are one body of christ. 
+
+
+## John 11
+- Mary, Martha, and Lazarus were all siblings. They were good friends of Jesus. This is not Mary Magdalene instead it is Mary of Bethany.
+
+Chapter summary: Jesus deliberately waits before traveling to Lazarus, who dies from his illness. Jesus then raises Lazarus from the dead, demonstrating His power over death and leading many people to believe in Him. The miracle also intensifies the religious leaders' plans to kill Jesus.
+
+#### Why did Jesus allow Lazarus to die instead of healing him?
+- To glorify God: Raising someone from the dead demonstrats divine authority. It also shows that Jesus has authority over life and death itself.
+- To strengthen peoples faith.
+
+- Lazarus resurrection serves as a physical demonstration of the eternal life Jesus promises to believers. Physical death doesnt have the final word. This connects to when Jesus tells Martha: "I am the surrection and the life. The one who believes in me will live, even though they die"
+
+#### Why did Jesus weep
+- Yes this shows his genuine humanity and emotions. But more deeply this Jesus expressing sorrow and anger toward the destructuve reality of death.
+
+Then at the end in the plot to kill Jesus:
+- Caiaphas, the high priest, declares that it would be better for one man to die than for the entire nation to perish.
+- John explains that Caiaphas unknowingly prophesies something greater: Jesus would die not only for the Jewish nation, but also to bring together God's scattered children.
