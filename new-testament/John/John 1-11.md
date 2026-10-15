@@ -155,10 +155,10 @@ Chapter summary: Jesus describes Himself as the Good Shepherd who protects, guid
 Chapter summary: Jesus deliberately waits before traveling to Lazarus, who dies from his illness. Jesus then raises Lazarus from the dead, demonstrating His power over death and leading many people to believe in Him. The miracle also intensifies the religious leaders' plans to kill Jesus.
 
 #### Why did Jesus allow Lazarus to die instead of healing him?
-- To glorify God: Raising someone from the dead demonstrats divine authority. It also shows that Jesus has authority over life and death itself.
+- To glorify God: Raising someone from the dead demonstrates divine authority. It also shows that Jesus has authority over life and death itself.
 - To strengthen peoples faith.
 
-- Lazarus resurrection serves as a physical demonstration of the eternal life Jesus promises to believers. Physical death doesnt have the final word. This connects to when Jesus tells Martha: "I am the surrection and the life. The one who believes in me will live, even though they die"
+- Lazarus resurrection serves as a physical demonstration of the eternal life Jesus promises to believers. Physical death doesnt have the final word. This connects to when Jesus tells Martha: "I am the resurrection and the life. The one who believes in me will live, even though they die"
 
 #### Why did Jesus weep
 - Yes this shows his genuine humanity and emotions. But more deeply this Jesus expressing sorrow and anger toward the destructuve reality of death.
