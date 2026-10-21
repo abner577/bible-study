@@ -33,7 +33,7 @@
 ---
 
 - After the timeline of the old testament, there is a 400 year gap (400 years of slience or no prophets or revelations (i.e. 400 years of God not talking to his people through anyone))
-- It was after these 400 yeras that the new testament begins and God talks to his people again through John the Baptist, Jesus, and other believers 
+- It was after these 400 years that the new testament begins and God talks to his people again through John the Baptist, Jesus, and other believers 
 
 ---
 
