@@ -11,12 +11,12 @@
 
 5. Messengers enter Europe
 
-6. Movement reaches the capitable city of Rome and into the highest levels of society; Gods kingdom is thus announced to all nations.
+6. Movement reaches the capital city of Rome and into the highest levels of society; Gods kingdom is thus announced to all nations.
 
 ---
 
 ## Intro to Acts
-- Acts focuses on what happened afterward the resurrection of Jesus: The birth of the early Church and the spread of Christianity throughout the Roman Empire.
+- Acts focuses on what happened after the resurrection of Jesus: The birth of the early Church and the spread of Christianity throughout the Roman Empire.
 
 - Luke wrote this book so its a continuation of his Gospel
 
