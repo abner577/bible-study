@@ -41,3 +41,28 @@ Chapter Summary: Peter and John are brought before the Sanhedrin for preaching a
 
 3. Believers Pray for Boldness
 - Something to note here is that they arent asking God to remove the persecution or take away the challenge. Instead they ask for strength and boldness to fight against it. So its an important reminder that faith doesnt eliminate challenges, it gives us the courage to face those challenges.
+
+## Acts 5
+Flogged = Severely beat a persons body.
+
+Chapter Summary: Ananias and Sapphira face God's judgment after lying about their offering, while the apostles continue performing miracles and spreading the Gospel throughout Jerusalem. Despite being arrested and threatened by religious authorities, the apostles remain faithful to God, refusing to stop preaching in Jesus' name.
+
+- One interesting detail is that people even placed the sick along the streets, hoping Peter's shadow might fall on them. The chapter doesn't explicitly say his shadow healed anyone, but it demonstrates how strongly people believed God was working through the apostles.
+
+Gamaliel was a respected Pharisee and teacher of the law who urged the Sanhedrin to exercise caution.
+
+His argument was straightforward:
+- If the apostles' movement is merely human: It will eventually collapse, just as other movements had.
+- If the movement truly comes from God: They will never succeed in stopping it and may find themselves fighting against God himself.
+
+## Acts 6
+As the early Church continues growing, disagreements arise because certain widows are being overlooked in the daily distribution of food, leading the apostles to appoint seven men to oversee this responsibility. Meanwhile, Stephen, one of the seven, performs great wonders and signs but faces opposition and is eventually brought before the Sanhedrin on false accusations.
+
+1. The Choosing of the Seven
+The early Church included two groups of Jewish believers:
+- Hebraic Jews: Jews who primarily spoke Aramaic (or Hebrew) and were more closely associated with the local Jewish culture of Jerusalem.
+- Hellenistic Jews: Jews who primarily spoke Greek and were influenced by Greek culture, often because they or their families had lived outside Judea.
+
+- And the problem was that the Hellenistic Jews complained that their widows were being overlooked in the daily distribution, while the Hebraic widows were apparently receiving assistance.
+
+- So since the church was growing the apostles realized that they couldnt effectively handle every responsibility themselves, so they asked thye community to choose 7 trustworth men, to take responsibility for the practical needs of the community. This allowed the apostles to focus on prayer and spreading Gods word. So we can take of it like delegating responsibilities. 
