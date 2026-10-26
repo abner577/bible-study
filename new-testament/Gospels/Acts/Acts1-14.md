@@ -65,4 +65,56 @@ The early Church included two groups of Jewish believers:
 
 - And the problem was that the Hellenistic Jews complained that their widows were being overlooked in the daily distribution, while the Hebraic widows were apparently receiving assistance.
 
-- So since the church was growing the apostles realized that they couldnt effectively handle every responsibility themselves, so they asked thye community to choose 7 trustworth men, to take responsibility for the practical needs of the community. This allowed the apostles to focus on prayer and spreading Gods word. So we can take of it like delegating responsibilities. 
+- So since the church was growing the apostles realized that they couldnt effectively handle every responsibility themselves, so they asked thee community to choose 7 trustworthy men, to take responsibility for the practical needs of the community. This allowed the apostles to focus on prayer and spreading Gods word. So we can take of it like delegating responsibilities. 
+
+## Acts 7
+Tabernacle = Portable, sacred sanctuary built by the Israelites on Gods instructions to serve as His dwelling place among them during their 40-year journey through the wilderness.
+
+Chapter Summary: Stephen stands before the Sanhedrin and recounts Israel's history, from Abraham and Joseph to Moses and the building of the temple, showing how the Israelites repeatedly resisted God and rejected those he sent to guide them. He accuses the religious leaders of repeating their ancestors' mistakes by rejecting Jesus, leading to his death by stoning.
+
+- Stephen retelling major events from the Old Testament: Hes showing that Israel has a history of rejecting the very people God sends to save them, and that the religious leaders have now donw the same thing by rejecting Jesus.
+
+1. Abraham, Issac, Jacon, and Joseph
+Family lineage is like: Abraham --> Issac --> Jacob --> 12 sons / 12 tribes on Israel --> Joseph was one of Jacobs twelve sons -->
+
+- His brothers became jealous of him and sold him into slavery into Egypt. However, God was with Joseph, and he eventually rose to a position of great authority under Pharaoh. When famine struck the region, Joseph's brothers traveled to Egypt seeking food. Joseph eventually revealed his identity to them and helped preserve his family.
+
+- This is important because pay attention to how Joseph was initially rejected by his own brothers but later became the very person God used to save them. This is representative of Jesus who was also rejected by His own people but became their Savior.
+
+2. Moses and the Exodus
+- You've understood this correctly.
+
+As the Israelites multiplied in Egypt, a new Pharaoh came to power and began oppressing them.
+
+Moses' life can be divided into three major periods:
+- First 40 years: Moses grows up in Egypt and eventually kills an Egyptian who was mistreating an Israelite.
+- Next 40 years: Moses flees Egypt and lives in Midian.
+- At approximately 80 years old: God appears to Moses through the burning bush and commissions him to lead the Israelites out of Egypt.
+
+3. Why did the Israelites Reject God in the wilderness?
+
+    1. First, why were they in the wilderness?
+
+    Initially, the Israelites entered the wilderness because God had delivered them from slavery in Egypt and was leading them toward the Promised Land. However, because of their repeated disobedience and lack of faith, particularly their refusal to enter the Promised Land when God commanded them, they were ultimately made to wander for 40 years.
+
+2. Second, why did they worship the golden calf?
+
+While Moses was on Mount Sinai receiving God's commandments, the Israelites became impatient and uncertain about his return. They asked Aaron to make them a god they could see and worship. Aaron fashioned a golden calf, and the people began offering sacrifices to it.
+
+The bigger message: Even after witnessing God's miracles and deliverance, the Israelites repeatedly turned away from him.
+That's precisely the pattern Stephen is accusing the Sanhedrin of continuing.
+
+3. Stephen rebukes the Sanhedrin
+- Your ancestors rejected Joseph, Moses, and the prophets whom God sent. Now you've done the same thing by rejecting and killing Jesus, the promised Messiah. That's why Stephen spent so much time discussing Israel's history. His speech wasn't simply a history lesson.
+
+## Acts 8
+Chapter Summary: Following Stephen's death, persecution breaks out against the Church in Jerusalem, scattering believers throughout Judea and Samaria, where Philip spreads the Gospel and performs miracles. Philip encounters Simon the Sorcerer and later an Ethiopian eunuch, whom he teaches about Jesus and baptizes, demonstrating how Christianity continues spreading beyond Jerusalem.
+
+1. Church is persectued and scattered
+Following Stephen's death, a great persecution breaks out against the believers in Jerusalem.
+- Saul, whom we met in Acts 7, begins actively persecuting Christians, entering homes and imprisoning believers.
+- Many Christians flee Jerusalem and scatter throughout Judea and Samaria.
+- However, instead of abandoning their faith, they continue preaching wherever they go.
+
+2. Simon the Sorcerer
+- Simon was a man who practiced sorcery and had amazed the people of Samaria with his abilities. After hearing Philip's preaching and witnessing his miracles, Simon believed and was baptized. However, when Peter and John arrived and laid their hands on believers so they received the Holy Spirit, Simon offered them money in exchange for that ability.
