@@ -72,9 +72,9 @@ Tabernacle = Portable, sacred sanctuary built by the Israelites on Gods instruct
 
 Chapter Summary: Stephen stands before the Sanhedrin and recounts Israel's history, from Abraham and Joseph to Moses and the building of the temple, showing how the Israelites repeatedly resisted God and rejected those he sent to guide them. He accuses the religious leaders of repeating their ancestors' mistakes by rejecting Jesus, leading to his death by stoning.
 
-- Stephen retelling major events from the Old Testament: Hes showing that Israel has a history of rejecting the very people God sends to save them, and that the religious leaders have now donw the same thing by rejecting Jesus.
+- Stephen retelling major events from the Old Testament: Hes showing that Israel has a history of rejecting the very people God sends to save them, and that the religious leaders have now done the same thing by rejecting Jesus.
 
-1. Abraham, Issac, Jacon, and Joseph
+1. Abraham, Issac, Jacob, and Joseph
 Family lineage is like: Abraham --> Issac --> Jacob --> 12 sons / 12 tribes on Israel --> Joseph was one of Jacobs twelve sons -->
 
 - His brothers became jealous of him and sold him into slavery into Egypt. However, God was with Joseph, and he eventually rose to a position of great authority under Pharaoh. When famine struck the region, Joseph's brothers traveled to Egypt seeking food. Joseph eventually revealed his identity to them and helped preserve his family.
@@ -82,8 +82,6 @@ Family lineage is like: Abraham --> Issac --> Jacob --> 12 sons / 12 tribes on I
 - This is important because pay attention to how Joseph was initially rejected by his own brothers but later became the very person God used to save them. This is representative of Jesus who was also rejected by His own people but became their Savior.
 
 2. Moses and the Exodus
-- You've understood this correctly.
-
 As the Israelites multiplied in Egypt, a new Pharaoh came to power and began oppressing them.
 
 Moses' life can be divided into three major periods:
@@ -118,3 +116,41 @@ Following Stephen's death, a great persecution breaks out against the believers 
 
 2. Simon the Sorcerer
 - Simon was a man who practiced sorcery and had amazed the people of Samaria with his abilities. After hearing Philip's preaching and witnessing his miracles, Simon believed and was baptized. However, when Peter and John arrived and laid their hands on believers so they received the Holy Spirit, Simon offered them money in exchange for that ability.
+
+## Acts 9
+Saul, a fierce persecutor of Christians, encounters Jesus on the road to Damascus, leading to his miraculous conversion and transformation into a bold preacher of the Gospel. Meanwhile, Peter continues spreading God's word through miraculous healings, including restoring a paralyzed man and raising a woman named Dorcas from the dead.
+
+1. Sauls Conversion
+On his way to Damascus, Jesus appeared to him in a bright light, and Saul fell to the ground. Jesus asked, "Saul, Saul, why do you persecute me?" Saul was blinded and remained without sight for three days, neither eating nor drinking. God instructed a disciple named Ananias to visit Saul, restore his sight, and tell him about God's purpose for his life.
+
+- Sauls story demonstrates that someones past doesnt determine their future relationshp with God. You are never too far gone, you are never too "bad" or a person, there is always a chance.
+
+## Acts 10
+Cornelius, a God-fearing Roman centurion, receives a vision instructing him to seek Peter, while Peter receives a vision teaching him not to consider what God has made clean as impure. Through their encounter, Peter realizes that God's salvation extends to Gentiles as well as Jews, and the Holy Spirit descends upon Cornelius and his household.
+
+- This is one of the most significant chapters in Acts because it marks a major turning point in the inclusion of Gentiles in the early Church.
+
+1. Peters vision
+- Peter received vhis vision of a sheet containing animals that Jewish dietary laws considered unclean. --> In this vision God was teaching Peter that Gentiles were not considered to be spiritually unclean or excluded from receiving the Gospel simply because they werent Jewish. 
+
+I had a question about if this vision also suggests that all foods are clean So heres the response to that:
+
+2. Does Peters Vision mean all foods are clean?
+- Moral Law: Commands concerning right and wrong, such as prohibitions against murder, theft, and adultery.
+- Ceremonial Law: Religious practices governing sacrifices, ritual purity, dietary restrictions, and worship.
+- Civil Law: Laws governing the ancient nation of Israel.
+
+- In Leviticus 11, God instructed the Israelities to distinguish between clean and unclean animals, prohibiting them from eating certain foods. These laws helped distinguish Israel as a holy people set apart for God.
+- But Many Christians understand Jesus coming as fulfilling the ceremonial requirements of the Old Covenant, meaning Christians are no longer bound by Israels dietary restrictions. 
+
+- Acts 10 primarily explains the acceptance of Gentiles rather then talking about the eating thing.
+
+
+Acts 10:26, where Cornelius falls at Peter's feet.
+
+Peter responds:
+"Stand up," he said, "I am only a man myself."
+
+This is a powerful demonstration of Peter's humility and recognition that all glory belongs to God.
+
+- Another important detail is that the Holy Spirit descends upon Cornelius and his housefold before they are baptized in water, so this points as to why we believe that being baptized is a symbolic thing more than anything as opposed to actually getting saved in that moment.
