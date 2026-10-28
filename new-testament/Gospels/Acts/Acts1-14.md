@@ -131,7 +131,7 @@ Cornelius, a God-fearing Roman centurion, receives a vision instructing him to s
 - This is one of the most significant chapters in Acts because it marks a major turning point in the inclusion of Gentiles in the early Church.
 
 1. Peters vision
-- Peter received vhis vision of a sheet containing animals that Jewish dietary laws considered unclean. --> In this vision God was teaching Peter that Gentiles were not considered to be spiritually unclean or excluded from receiving the Gospel simply because they werent Jewish. 
+- Peter received his vision of a sheet containing animals that Jewish dietary laws considered unclean. --> In this vision God was teaching Peter that Gentiles were not considered to be spiritually unclean or excluded from receiving the Gospel simply because they werent Jewish. 
 
 I had a question about if this vision also suggests that all foods are clean So heres the response to that:
 
@@ -154,3 +154,27 @@ Peter responds:
 This is a powerful demonstration of Peter's humility and recognition that all glory belongs to God.
 
 - Another important detail is that the Holy Spirit descends upon Cornelius and his housefold before they are baptized in water, so this points as to why we believe that being baptized is a symbolic thing more than anything as opposed to actually getting saved in that moment.
+
+## Acts 11
+Chapter Summary: Peter explains to the Jewish believers why he welcomed Gentiles, emphasizing that God granted them the same gift of the Holy Spirit. Meanwhile, the Church continues growing in Antioch, where Barnabas and Saul teach new believers, the disciples are first called Christians, and the community provides assistance to believers in Judea facing an approaching famine.
+
+**The church in Antioch:**
+- After Stephens death, persection scattered believers from Jerusalem into other regions including Antioch. Here the disciples preached to Gentile Greeks. 
+- This was the first place where the disciples were called Christians.
+
+- Barnabas sent for Saul, and there they stayed for a whole year preaching the word.
+
+- Then comes the prophecy of the Famine, a prophet named Agabus predicted that there would be a famine therefore some of the believers in Antioch sent assistance to Judea.
+
+## Acts 12
+Chapter Summary: King Herod persecutes the early Church, executing the apostle James and imprisoning Peter, who is miraculously rescued by an angel of the Lord. Herod later dies after accepting praise as though he were a god, while the word of God continues to spread and flourish despite opposition.
+
+1. Herod Executes James
+- Yes, this James was one of Jesus original 12 apostles, specificially James son of Zebedee. This makes him the first of the original 12 whose martydom is recorded in Acts.
+
+2. Herods Death
+- Herod was giving a public address when the people began praising him as though he were a god.
+- Instead of rejecting that praise and giving glory to God, Herod accepted it.
+- Acts 12:23 tells us that an angel of the Lord struck him down because he did not give praise to God, and he died after being afflicted with worms.
+
+- Let this be a reminder to always be HUMBLE and to always give the glory to GOD first!!!
