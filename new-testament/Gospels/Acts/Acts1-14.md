@@ -156,7 +156,7 @@ This is a powerful demonstration of Peter's humility and recognition that all gl
 - Another important detail is that the Holy Spirit descends upon Cornelius and his housefold before they are baptized in water, so this points as to why we believe that being baptized is a symbolic thing more than anything as opposed to actually getting saved in that moment.
 
 ## Acts 11
-Chapter Summary: Peter explains to the Jewish believers why he welcomed Gentiles, emphasizing that God granted them the same gift of the Holy Spirit. Meanwhile, the Church continues growing in Antioch, where Barnabas and Saul teach new believers, the disciples are first called Christians, and the community provides assistance to believers in Judea facing an approaching famine.
+Chapter Summary: Peter explains to the Jewish believers why he welcomed Gentiles, emphasizing that God granted them the same gift of the Holy Spirit. Meanwhile, the Church continues growing in Antioch, where Barnabas and Saul teach new believers, the disciples are first called Christians in Antioch, and the community provides assistance to believers in Judea facing an approaching famine.
 
 **The church in Antioch:**
 - After Stephens death, persection scattered believers from Jerusalem into other regions including Antioch. Here the disciples preached to Gentile Greeks. 
@@ -178,3 +178,46 @@ Chapter Summary: King Herod persecutes the early Church, executing the apostle J
 - Acts 12:23 tells us that an angel of the Lord struck him down because he did not give praise to God, and he died after being afflicted with worms.
 
 - Let this be a reminder to always be HUMBLE and to always give the glory to GOD first!!!
+
+## Acts 13
+- To incite means to stir up or urge someone into action frequently toward negative or sinful behavior contrary to Gods will.
+- A proconsul is a high-raning Roman provincial governer.
+
+Chapter Summary: Barnabas and Saul are sent by the Holy Spirit on their first missionary journey, beginning in Cyprus, where Saul confronts a false prophet and the Roman proconsul comes to believe. They then travel to Pisidian Antioch, where Paul proclaims Jesus as the promised Messiah, leading many Gentiles to believe while Jewish opposition forces them to continue their journey to Iconium.
+
+1. Barnabas and Saul in Cyprus
+Bar-Jesus (also called Elymas): A Jewish sorcerer and false prophet who attempted to prevent Sergius Paulus from accepting the Gospel.
+Sergius Paulus: The Roman proconsul (governor) of Cyprus who wanted to hear God's word.
+Saul (Paul): Filled with the Holy Spirit, he confronted Elymas and declared that he would become temporarily blind
+
+- Moving forward in Acts, Saul is primarily reffered to as Paul.
+
+2. Paul & Barnabas in Psidian Antioch
+This Antioch is not the same Antioch we encountered in Acts 11.
+- Antioch in Syria: Where Barnabas and Saul taught for a year and where believers were first called Christians.
+- Pisidian Antioch: A city in Asia Minor (modern-day Turkey) visited during their first missionary journey.
+
+And whats really cool about Pauls speech is that it follows the same structure that Stephens did in Acts 7:
+1. First explaining Jewish history
+2. God promising that a savior would come from Davids Lineage
+3. Jesus fulfilling scripture and promises through his death and resurrection
+4. Jesus died for your sins and in him we find forgiveness.
+
+- The main theme to focus on here is that salvation come through Jesus Christ ONLY, not just observing/obeying Law of Moses. Why? --> Its because we arent saved by our acts (lol) we are saved by our faith.
+
+- At the end Paul and Barnabas shake the dust off their feet when leaving Psidian Antioch after being persecuted following what Jesus told them to do in Matthew 10:14. But this is representative of yes a warning but also as a decision to move on rather than sit there and argue and force someone to believe, your job is to faithfully deliver the message brother, after that its all Gods work.
+
+## Acts 14
+Lame = Someone who is physically disabled, crippled, or unable to walk properly due to an injury, birth defect, or paralysis.
+
+Chapter Summary: Paul and Barnabas continue spreading the Gospel through Iconium, Lystra, and Derbe, performing miracles and facing opposition, including Paul being stoned and left for dead. Despite persecution, they strengthen the growing churches, appoint elders, and eventually return to Antioch, completing their first missionary journey.
+
+1. Paul and Barnabas in Iconium
+- Paul and Barnabas preach boldly, and many Jews and Gentiles believe.
+- The city becomes divided between those who support the apostles and those who oppose them.
+- When they discover a plot to mistreat and stone them, they flee to Lystra and Derbe.
+
+2. Paul and Barnabas in Lystra and Derbe
+- We see this common theme reappearing where people want to worship the disciples as gods. But they keep an emphasis on HUMILITY, and keep emphasizing that they are human just like us, and that God gives them the ability to do everything. This also urges us to turn away from unecessary idols.
+
+- The journey ends when Paul and Barnabas return to Antioch in Syria, where they report everything God had accomplished through them, particularly how he had opened the door of faith to the Gentiles.
