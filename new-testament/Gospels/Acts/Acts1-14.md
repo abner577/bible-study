@@ -181,7 +181,7 @@ Chapter Summary: King Herod persecutes the early Church, executing the apostle J
 
 ## Acts 13
 - To incite means to stir up or urge someone into action frequently toward negative or sinful behavior contrary to Gods will.
-- A proconsul is a high-raning Roman provincial governer.
+- A proconsul is a high-ranking Roman provincial governer.
 
 Chapter Summary: Barnabas and Saul are sent by the Holy Spirit on their first missionary journey, beginning in Cyprus, where Saul confronts a false prophet and the Roman proconsul comes to believe. They then travel to Pisidian Antioch, where Paul proclaims Jesus as the promised Messiah, leading many Gentiles to believe while Jewish opposition forces them to continue their journey to Iconium.
 
@@ -203,7 +203,7 @@ And whats really cool about Pauls speech is that it follows the same structure t
 3. Jesus fulfilling scripture and promises through his death and resurrection
 4. Jesus died for your sins and in him we find forgiveness.
 
-- The main theme to focus on here is that salvation come through Jesus Christ ONLY, not just observing/obeying Law of Moses. Why? --> Its because we arent saved by our acts (lol) we are saved by our faith.
+- The main theme to focus on here is that salvation comes through Jesus Christ ONLY, not just observing/obeying Law of Moses. Why? --> Its because we arent saved by our acts (lol) we are saved by our faith.
 
 - At the end Paul and Barnabas shake the dust off their feet when leaving Psidian Antioch after being persecuted following what Jesus told them to do in Matthew 10:14. But this is representative of yes a warning but also as a decision to move on rather than sit there and argue and force someone to believe, your job is to faithfully deliver the message brother, after that its all Gods work.
 
