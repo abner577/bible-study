@@ -45,3 +45,22 @@ Acts beings shortly after Jesus resurrection, around AD 30-33, and follows rough
 - Christianity began within Judaism. Jesus earliest followers were Jewish and belived he was the promised Messiah.
 - Religious persecution become an important challenge as the apostles encountered opposition from some religious authorities and Roman officials.
 - Gentile inclusion became a major question.
+
+---
+
+1. Who wrote Acts, and why does the author sometimes saw "we" or "us"?
+- The Gospel of Luke and the Book of Acts are attributed to the same author: Luke. Both books are addressed to Theophilus, and Acts begins by referring back to the author's earlier account of Jesus' ministry.
+
+Was luke traveling with Paul?
+- Yes, Luke was one of Pauls traveling companions, but he wasnt necessarily with Paul throughout every journey. 
+
+Throughout most of Acts, the author uses the third person. But at certain points, the narration changes to the first person. These passages are commonly called the "we passages" of Acts.
+
+Here are the main places where this happens:
+Passage	What happens
+Acts 16:10–17	Paul's journey to Macedonia and Philippi
+Acts 20:5–15	Paul's journey through Troas toward Jerusalem
+Acts 21:1–18	Paul's journey to Jerusalem
+Acts 27:1–28:16	Paul's voyage to Rome
+
+- And since Luke was a doctor (Colossians 4:14 (NIV) "Our dear friend Luke, the doctor") --> And his addressing to Theophilus, it makes sense why these two books are so long and so descriptive and accurate and specific just like a doctor would be because they pay attention to every deatil and are very careful, thats just an interesting cool detail.
