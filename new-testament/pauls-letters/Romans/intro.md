@@ -16,7 +16,7 @@
 
 - We touch on this distinction between jewish and gentile christians a lot in this book: Paul explains that both Jews and Gentiles need salvation, and both can receive it through faith in Jesus Christ. Neither group has a privileged path to salvation simply because of its ancestry.
 
-## 3. When and were was Romans written?
+## 3. When and where was Romans written?
 - Most Likely Corinth, a Greek city where Paul spent time during his missionary journeys.
 
 Heres how Romans fits into the timeline of Acts:
@@ -40,7 +40,7 @@ Heres how Romans fits into the timeline of Acts:
     - Why do humans need salvation? Why can't following the Law of Moses alone save someone? How does faith in Jesus make someone righteous before God? What role do grace, sin, and forgiveness play in salvation?
 
     2. To encourage unity between Jewish and Gentile Christians
-    - Remember that the Jewush people had centuries of history with God through Abraham, Moses, the prophets, and the Law. Whereas the Gentiles didnt share this same history, so naturally this raised questions about how these 2 groups fit into Gods plan.
+    - Remember that the Jewish people had centuries of history with God through Abraham, Moses, the prophets, and the Law. Whereas the Gentiles didnt share this same history, so naturally this raised questions about how these 2 groups fit into Gods plan.
 
     3. To prepare for his future visit to Rome
     - Paul wanted to visit the Roman Christians, encourage them, and eventually continue his missionary work into Spain. He hoped the Roman Christians would help support that mission. Romans therefore also served as an introduction to Paul and his teachings.
