@@ -44,7 +44,7 @@ The answer is absolutely NOT --> Gods faithfulness doesnt depend on humanitys fa
 Then Paul makes a point: Something evil doesnt become morally good simply because God can bring something good out of it. Otherwise, someone could argue that we should deliberately commit sins so God would receive more glory.
 
 2. Romans 3:9–20 — No one is righteous
-- Nonbody can claim complete righteousness befoer Gad based on their obedience/works. Paul is emphasizing that no one possesses the perfect righteousness required to stand before God on the basis of their own merit.
+- Nonbody can claim complete righteousness befoer God based on their obedience/works. Paul is emphasizing that no one possesses the perfect righteousness required to stand before God on the basis of their own merit.
 
 4. Righteousness through faith
 - So now Paul has established that nobody can make themselves righteous through works of the Law, so that begs the question --> How can we be made right with God??
@@ -63,7 +63,7 @@ Chapter summary: Paul uses Abraham as an example to demonstrate that righteousne
 
 1. What does "credited to him as righteousness mean?"
 So "We're kind of given the title of being righteous before God/with God, but we didn't do anything to really earn that."
-- So this means we are credited with righteousnes, we are given this title of righteous but in reality we arent reall,y we were given that title by somebody. And that was through the death of Jesus Christ.
+- So this means we are credited with righteousnes, we are given this title of righteous but in reality we arent really that by ourselves, instead we were given that title by somebody. And that was through the death of Jesus Christ.
 
 when Paul says Abraham's faith was credited to him as righteousness, he's explaining that God counted Abraham as righteous on the basis of faith, not because Abraham had earned that standing through perfect obedience.
 
@@ -72,8 +72,37 @@ Paul distinguishes between 2 ways of receiving something:
 - Wages = Something you receive because youve worked for it, youre OWED payment.
 - Grace = Something freely given that you didnt earn.
 
-- If righteousness came through our works, we could claim that God owed us salvation because we had fulfilled the requirements. But Paul's entire argument is that nobody can make such a claim. --> Because in order to technically do that we would need to be perfect, because thats the standard of God and Heave, He IS Goodness and that embodies perfection.
+- If righteousness came through our works, we could claim that God owed us salvation because we had fulfilled the requirements. But Paul's entire argument is that nobody can make such a claim. --> Because in order to technically do that we would need to be perfect, because thats the standard of God and Heaven, He IS Goodness and that embodies perfection.
 
 3. Abraham was righteous before circumcision
 - Abraham was counted righteous BEFORE he received circumcision. Therefore, circumcision couldnt have been what earned him righteousness.
-- This connects to the ide aof good works being evidence of genuine faith.
+- This connects to the idea of good works being evidence of genuine faith.
+
+## Romans 5 
+trespass = violation of moral law or trust that breaches a relationship with God or another person.
+
+Chapter summary: Paul explains that through faith in Jesus Christ, we are justified, reconciled with God, and given peace with Him and the hope of eternal life. He then contrasts Adam, whose disobedience brought sin and death into the world, with Jesus Christ, whose obedience and sacrifice bring grace, righteousness, and eternal life to those who receive God's gift.
+
+1. Peace with God
+- Here Paul is talking about us having peace with God, this is reffering to our restored relationship with God. We are no longer in a state of hostility toward God because of our sin. We have been reconciled to Him through Crhist.
+
+- Christ died for us while we were still sinners, none of our deserved Christ sacrifice on the basis of our righteousness.
+
+2. Romans 5:12-14 What does it mean that sin isnt charged where there is no law
+- Romans 2:12-16 actually touches on this --> Where Paul explaisn that Gentiles who dont posses the written Law still have a conscience that bears witness to moral requirements. 
+
+3. Adams trespass versus Christ gift
+- Here Paul is contrasting the consequences of Adam`s disobedience with the consequences of Christ obedience
+- If one mans disobedience could have such enormouse conseuqences, how much greater must the impact of Jesus sacrifice be. Paul uses the expression: "how much more" --> Paul presents Gods grace through Christ as surpassing the destructive consequences of Adam`s sin
+
+4. Why did the Law cause trespasses to increase?
+"The law was brought in so that the trespass might increase. But where sin increased, grace increased all the more." (Romans 5:20, NIV)
+
+- Why would God introduce His Law if doing so would cause sin to increase? -->
+    1. First, the Law makes sin more recognizable and exposes its seriousness. 
+    - Once we have clear commandments about what we should and should not to --> Thier wrongdoing becomes an explicit violation of a knwon rule --> This connects to this verse because it makes us more conscious of sin
+
+    2. The Law can actuall provoke further transgression in sinful humnaity
+    - This idea that sinful human desires rebel against Gods commandments. Pauls point is that the problem lies in humanitys sinful nature. 
+
+"But where sin increased, grace increased all the more" --> Even though sin increased, Gods grace through Jesus Christ was greater. The point is that no matter how extensive humanitys sin has become, Gods saving grace through Christ is more than sufficient to overcome it.
