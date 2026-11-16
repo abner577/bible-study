@@ -35,10 +35,10 @@ What does Paul mean when he says we're baptized into Christ's death and buried w
 - Paul is describing how becoming united with Jesus Christ means participating in the significance of His death and resurrection. He is trying to draw a connection to Christ life and our lives -->
 Jesus died, was buried, and rose again to a new life == Similarly we have a death to sin, a death to our old life that was ruled by sin comes to an end. And then we have a new life we now live for God.
 
-- Baptism represents our identification with Christ in His death, burial, and resurrection. Going beneath the water visibly pictures burial, and coming our pictures rising to new life. 
+- Baptism represents our identification with Christ in His death, burial, and resurrection. Going beneath the water visibly pictures burial, and coming out pictures rising to new life. 
 
 2. What does it mean to be dead to sin?
-Paul says that our old self was crucified with Christ --> This means that sin no longer has the same authority over us that it once did. Before coming to Christ, we were under sin dominion. Through Christ, we have been freed from that dominion.
+Paul says that our old self was crucified with Christ --> This means that sin no longer has the same authority over us that it once did. Before coming to Christ, we were under sins dominion. Through Christ, we have been freed from that dominion.
 
 - Additionally when Paul says that Christ died to sin once for all, hes emphasizing the finality of Jesus victory over sins power. This sort of puts into context like the significance of the resurrection, he defated sin and hes stronger and reigns over sin, therefore his sacrifice is sufficient.
 
@@ -46,12 +46,46 @@ Justification = Being declared righteous before God through faith in Christ
 Sanctification = The ongoing process of becoming more holy and living in a way that reflects our relationship with God.
 
 3. Obedience from the heart
-- Paul says believers have come to obey Gods teaching from thier hearts. This emphasizez that our obedience isnt something that should feel forced on us, or merely just compliance with the law. A Christian should obey God only to maintain a religious appearnce or gain approval of other people. Instead, obedience should flow from genuine faith and a changed heart.
+- Paul says believers have come to obey Gods teaching from thier hearts. This emphasizez that our obedience isnt something that should feel forced on us, or merely just compliance with the law. A Christian should NOT obey God only to maintain a religious appearnce or gain approval of other people. Instead, obedience should flow from genuine faith and a changed heart.
 
 4. Are we really free when were slaves to sin?
 "If someone believes they're free because they can do whatever they want, but they're actually enslaved by sin, are they really free?"
 - Someone who lives under sins control might believe they possess complete freedom because they dont feel obligated to obey God, but Paul challenges that understanding of freedom. Being able to follow every desire doesnt necessarily mean you`re free, espeically if those desires lead you straight to DEATH.
 
 5. Wages of sin versus the gift of God
-Romans 6:23 "For the wages of sin os death, but the gift of God is eternal life in Christ Jesus our Lord"
+Romans 6:23 "For the wages of sin is death, but the gift of God is eternal life in Christ Jesus our Lord"
 - Notice the use of words here: We use wages for sin, because wages are earned, but the "GIFT" of god is something we are given
+
+## Romans 7
+Covet = To have an intense or unhealthy desire for something that belongs to someone else.
+
+Chapter summary: Paul explains that through Jesus Christ, believers have been released from the Law of Moses as the system that governed their relationship with God. He then explains that the Law itself is good, but humanity's sinful nature takes advantage of it. Finally, Paul describes the struggle between wanting to obey God and continuing to experience sinful desires.
+
+1. What does Paul mean by "law"?
+There are a variety of different meanings so heres them all:
+    1. The Law of Moses --> The commandments God gave Israel, including the Ten Commandments
+    2. The Law of sin -->  The power or principle of sin operating within fallen humanity.
+    3. The Law of my mind --> The inward recognition of and desire to follow God's Law.
+    4. The lat at work --> A recurring principle or pattern Paul observes in his struggle with sin.
+
+2. Romans 7: 1-6 Released from the Law, bound to Christ
+- Here, his main subject is the Law of Moses --> Paul is essentially describing that us as Christians have died to the Law as the covenant that previously goverened Gods people, we now belong to the risen Christ. The main idea is that we dont obtain righteousness through following the Law.
+Romans 7:4: "You also died to the law through the body of Christ, that you might belong to another..."
+
+3. The Law and Sin (How does sin use the Law against us?)
+- When commandments are imposed on us, our sinful nature sometimes makes us want to break those commandments. Our sinful nature can respond to a specific prohibition by producing even stronger desires to covet.
+- Pauls argument is that sin takes advantage of God`s good commandments to produce further disobedience. But the Law also exposes humanitys clearinability to overcome sin through the Law alone.
+
+4. Romans 7:14-20 The struggle between wanting good and doing evil
+"For what I want to do I do not do, but what I hate I do." (Romans 7:15, NIV) --> The ongoing struggle between our souls desire to obey God and the sinful desires of our flesh.
+- When Paul describes the flesh he isnt necessarily referring to our physical bodies, instead hes describing fallen human nature, especiall human weakness. So our physical bodies arent inherently evil, its our human nature that is.
+
+5. Romans 7:17-20 "Its no longer I myself who do it"
+- Paul isnt removing personal responsibility for sinful behavior, rather hes distinguishing between his inward desire to obey Gods Law and the power of sin working against that desire.
+- Paul makes the point: "Wanting to do what is right doesnt automatically give us the power to consistently do it" --> This is why humanity needs more than knowledge of the Law, we need Christ, we need the Holy Spirit inside of us and we need grace.
+
+6. The law of sin and the final struggle
+- People may recognize what is right, but find another powerful influence pulling them toward wrongdoing, this is the conflict and constant "tug and pull" that Paul is describing between soul and flesh.
+- The law of his mind is the inward agreement and desire to obey Gods law, whereas the law of sin refers to sins opposing influence.
+- Paul describes these opposing forces as being at war, which then leads to his point in verse 24 -->
+    "Who will rescue me from this body that is subject to death?" --> Essentially we are deoomed because we cannot escape our sinful nature by oursevels, we need deliverance to Jesus Christ.
