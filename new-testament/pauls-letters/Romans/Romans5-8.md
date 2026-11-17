@@ -66,7 +66,7 @@ There are a variety of different meanings so heres them all:
     1. The Law of Moses --> The commandments God gave Israel, including the Ten Commandments
     2. The Law of sin -->  The power or principle of sin operating within fallen humanity.
     3. The Law of my mind --> The inward recognition of and desire to follow God's Law.
-    4. The lat at work --> A recurring principle or pattern Paul observes in his struggle with sin.
+    4. The Law at work --> A recurring principle or pattern Paul observes in his struggle with sin.
 
 2. Romans 7: 1-6 Released from the Law, bound to Christ
 - Here, his main subject is the Law of Moses --> Paul is essentially describing that us as Christians have died to the Law as the covenant that previously goverened Gods people, we now belong to the risen Christ. The main idea is that we dont obtain righteousness through following the Law.
@@ -74,11 +74,11 @@ Romans 7:4: "You also died to the law through the body of Christ, that you might
 
 3. The Law and Sin (How does sin use the Law against us?)
 - When commandments are imposed on us, our sinful nature sometimes makes us want to break those commandments. Our sinful nature can respond to a specific prohibition by producing even stronger desires to covet.
-- Pauls argument is that sin takes advantage of God`s good commandments to produce further disobedience. But the Law also exposes humanitys clearinability to overcome sin through the Law alone.
+- Pauls argument is that sin takes advantage of God`s good commandments to produce further disobedience. But the Law also exposes humanitys clear inability to overcome sin through the Law alone.
 
 4. Romans 7:14-20 The struggle between wanting good and doing evil
 "For what I want to do I do not do, but what I hate I do." (Romans 7:15, NIV) --> The ongoing struggle between our souls desire to obey God and the sinful desires of our flesh.
-- When Paul describes the flesh he isnt necessarily referring to our physical bodies, instead hes describing fallen human nature, especiall human weakness. So our physical bodies arent inherently evil, its our human nature that is.
+- When Paul describes the flesh he isnt necessarily referring to our physical bodies, instead hes describing fallen human nature, especially human weakness. So our physical bodies arent inherently evil, its our human nature that is.
 
 5. Romans 7:17-20 "Its no longer I myself who do it"
 - Paul isnt removing personal responsibility for sinful behavior, rather hes distinguishing between his inward desire to obey Gods Law and the power of sin working against that desire.
@@ -88,4 +88,50 @@ Romans 7:4: "You also died to the law through the body of Christ, that you might
 - People may recognize what is right, but find another powerful influence pulling them toward wrongdoing, this is the conflict and constant "tug and pull" that Paul is describing between soul and flesh.
 - The law of his mind is the inward agreement and desire to obey Gods law, whereas the law of sin refers to sins opposing influence.
 - Paul describes these opposing forces as being at war, which then leads to his point in verse 24 -->
-    "Who will rescue me from this body that is subject to death?" --> Essentially we are deoomed because we cannot escape our sinful nature by oursevels, we need deliverance to Jesus Christ.
+    "Who will rescue me from this body that is subject to death?" --> Essentially we are doomed because we cannot escape our sinful nature by ourselves, we need deliverance to Jesus Christ.
+
+## Romans 8
+foreknew = to know beforehand
+
+Chapter summary: Paul explains that those who belong to Jesus Christ are no longer under condemnation and can now live through the power of the Holy Spirit rather than being controlled by sin. He also describes our future hope of resurrection, God's purpose for believers, and the assurance that nothing in creation can separate us from God's love in Christ.
+
+1. No condemnation in Christ
+- Condemnation here refers to the guilty verdict and punishment associated with sin before Gods judgment.
+- Conviction involves recognizing our wrongdoing and being moved toward repentance.
+- Speeding ticket analogy is good to illustrate the idea that Christ dealt with sins consequences on our behalf.
+
+2. Romans 8:5-17 Living by the spirit and becoming children of God
+- A person governed by the flesh remains oriented toward sin, whereas someone governed by the Spirit increasingly desires to obey God. Genuine faith should produce transformation, but that transformation is a process, not instant perfect.
+
+Distinguishing Gods "children"
+- Paul affirms the idea that those who receive Christ are given the right to become children of God.
+- Creation = Every human owes their existence to God.
+- Adoption = Those who belong to Christ receive the special relationship and inheritance of Gods children.
+
+3. Sharing in Christ sufferings
+- This means that belonging to Jesus can involve suffering because of our identificaton with Him. This can include persecution, rejection, and hardships associated with following Chirst.
+Romans 8:18 "I consider that our present sufferings are not worth comparing with the glory that will be revealed in us."
+
+4. Romans 8:19-23 WHy is creating groaning
+- Creation here refers to the created world beyond humanity: nature and the physical universe. Remember in Genesis 3 when Adam and Eve sinned --> Sin didnt simply affect their personal relationship with God. The created world was also subject to frustration, decay, and death.
+
+- Paul then describes creation as eagerly awaiting the revealing of Gods children because the future redemption of believers is connected to the restoration of creation itself. -->
+Then paul uses the childbirth analogy --> Childbirth involves pain, but that pain is connected to the arrival of new life --> Similarly, creation is currently experiencing suffering and decay, but this suffering is in anticipation of future renewal. This is about Gods ultimate plan to redeem not only His people but also His creation.
+
+Verses 20-21:
+- Adam and Eve caused the Fall through their disobedience, introducing sin into the world. --> But God was the one who subjected creaton to frustration as a consequence of humanitys sin, when God cursed the ground because of Adam.
+
+5. Romans 8: 24-25 What exactly are we hoping for?
+- Paul is referring to our future redemption (Judgement day), especially the resurrection and glorification of our bodies. 
+- We already have the salvation in Christ living within us but we dont yet posesses the fullness of what God has promised. But we hope for the dya when God will complete our redemption.
+
+6. Romans 8:28 ("And we know that in all things God works for the good of those who love him, who have been called according to his purpose.")
+- Yes, Paul is explicitly identifying the recipients as those who love god and are called according to His purpose. Hes disucsing those who belong to Chirst --> This doesnt mean that God never shows kindness to unbelievers or never working for their benefit.
+
+7. Romans 8:31-34 If God is for us, who can be against us?
+- Again, doesnt mean nobody will ever oppose us, but rather no opposition can ultimately overturn Gods saving purpose for those who belong to Chirst.
+
+8. Romans 8:35-39 Nothing can separate us from Gods love
+- Paul lists persecution, suffering, danger, death, and other forces that might appear capable of separating believers from Chris. --> But he decalres that none of these can overcome Gods love, and this is one of the passages that is commonly used in support of once saved always saved.
+
+Verse 37: Paul calls us conquerors because hes saying that through Chirst, believers experience victory even in the midst of suffering.
