@@ -112,18 +112,18 @@ Distinguishing Gods "children"
 - This means that belonging to Jesus can involve suffering because of our identificaton with Him. This can include persecution, rejection, and hardships associated with following Chirst.
 Romans 8:18 "I consider that our present sufferings are not worth comparing with the glory that will be revealed in us."
 
-4. Romans 8:19-23 WHy is creating groaning
+4. Romans 8:19-23 Why is creation groaning
 - Creation here refers to the created world beyond humanity: nature and the physical universe. Remember in Genesis 3 when Adam and Eve sinned --> Sin didnt simply affect their personal relationship with God. The created world was also subject to frustration, decay, and death.
 
 - Paul then describes creation as eagerly awaiting the revealing of Gods children because the future redemption of believers is connected to the restoration of creation itself. -->
 Then paul uses the childbirth analogy --> Childbirth involves pain, but that pain is connected to the arrival of new life --> Similarly, creation is currently experiencing suffering and decay, but this suffering is in anticipation of future renewal. This is about Gods ultimate plan to redeem not only His people but also His creation.
 
 Verses 20-21:
-- Adam and Eve caused the Fall through their disobedience, introducing sin into the world. --> But God was the one who subjected creaton to frustration as a consequence of humanitys sin, when God cursed the ground because of Adam.
+- Adam and Eve caused the Fall through their disobedience, introducing sin into the world. --> But God was the one who subjected creation to frustration as a consequence of humanitys sin, when God cursed the ground because of Adam.
 
 5. Romans 8: 24-25 What exactly are we hoping for?
 - Paul is referring to our future redemption (Judgement day), especially the resurrection and glorification of our bodies. 
-- We already have the salvation in Christ living within us but we dont yet posesses the fullness of what God has promised. But we hope for the dya when God will complete our redemption.
+- We already have the salvation in Christ living within us but we dont yet posesses the fullness of what God has promised. But we hope for the day when God will complete our redemption.
 
 6. Romans 8:28 ("And we know that in all things God works for the good of those who love him, who have been called according to his purpose.")
 - Yes, Paul is explicitly identifying the recipients as those who love god and are called according to His purpose. Hes disucsing those who belong to Chirst --> This doesnt mean that God never shows kindness to unbelievers or never working for their benefit.
