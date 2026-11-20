@@ -45,12 +45,41 @@ Chapter summary: Romans 10 continues Paul's discussion of Israel's unbelief, exp
 - Paul says that Christ is the "culmination of the law" --> This means that Jesus is the fulfillment and goal of what the law was pointing toward.
 
 1. Romans 10: 5-8 "Righteousness through the law versus righteousness through faith"
-- When Paul quptes Moses saying: "The person who does these things will live by them", hes reffering to the principle of righteousness through obedience to the law. --> So hes saying okay if you believe in this principle, they must 100% of the time obey its requirements but that isnt possible as established in Romans 3 --> It is established that all have sinned and fallen short of the glory of God.
+- When Paul quotes Moses saying: "The person who does these things will live by them", hes reffering to the principle of righteousness through obedience to the law. --> So hes saying okay if you believe in this principle, they must 100% of the time obey its requirements but that isnt possible as established in Romans 3 --> It is established that all have sinned and fallen short of the glory of God.
 
 2. Romans 10:14-15 Why does Paul ask all these questions?
 - Here, Paul is explaining the importance of spreading the gosepl. His questions follow a logical sequence: How can someone call upon Jesus if they don't believe in him? --> How can they believe in Him if they`ve never heard about Him? --> How can they hear about Him unless someone tells them? And how can someone tell them unless they are sent?
 
-- Paul is essentially demonstrating that preachign the gospel is necessary because people need an opportunity to hear about Jesus before they can believe in Him.
+- Paul is essentially demonstrating that preaching the gospel is necessary because people need an opportunity to hear about Jesus before they can believe in Him.
 
 3. Romans 10:16-21 Israel heard the message but didnt accept it
 - Paul anticipates the question of whether Israel's unbelief might be explained by their never having heard the message. His answer is no. Israel had received God's revelation, and the message of Christ had been proclaimed
+
+## Romans 11
+Spirit of stupor = A state of profound spiritual insensitivity or moral blindness
+Ingrafted = Comes from the farming practice of grafting --> It is to join a branch onto a plant so they grow as one --> Its described as being joined into Gods people.
+Doxology = A short expression or hymn of praise that ascribes glory and honor to God.
+
+Chapter summary: Romans 11 continues Paul's discussion of Israel's unbelief, emphasizing that God has not rejected Israel despite its repeated disobedience. Paul explains how Israel's rejection of the gospel has opened the way for more Gentiles to receive salvation, while also emphasizing that Israel can still be restored through faith.
+
+Why is Paul spending so much time talking about Israel?
+- Remember that Paul is writing to the Christians in Rome, a community that included both Jewish and Gentile believers. So hes trying to explain how Gods promises to Israel fit into his larger plan to salvation through Jesus Christ.
+- In this chapter hes particularly concerned that Gentile Christians might become arrogant and view themselves as superior to the Jewish peple because many Israelities have rejected Jesus.
+
+1. Romans 11:1-10 God hasnt rejected Israel
+- Paul is emphasizing that God hasnt abandoned Israel as a people, even though many have rejected the hosepl.
+
+*Baal was a false god worshipped by various peoples including some Israelities.*
+
+2. Romans 11:11-24 The ingrafted brnaches
+- Paul uses this metaphor to illustrate the relationship between Israel, Gentile believers, and Gods promises. The natural branches represent Israelites, while the wild olive branches represent Gentile who have come to faith.
+
+- And in verses 11-15 --> Paul explains that Israels rejection of the gospel has contributed to the gospel spreading among the Gentiles.
+- Then in verse 15: "For if their rejction brought reconciliation to the world, what will their acceptance be but life from the dead?" --> Paul describes that Israel acceptance would be like life from the dead, which shows the significance of it, as an illustration of spiritual restoration (Israel was dead spiritiually but through acceptance they could obtain life).
+
+3. Romans 11:25-32 "All Israel will be saved"
+- In verse 25 Paul is explaining that Israels unbelief is partial, beacuse not every Israelities has rejected Jesus, and that this hardening has a place in Gods larger plan.
+- And in verse 26 it says: "And in this way all Israel will be saved" --> A common interpretation is that Paul anticipated a future, widespread turning of the Jewish people toward Jesus Christ.
+
+The back-and-forth between Jews and Gentile in verses 30-32 is to make the point that neither group can claim to have earned salvation or be morally superior to the other. Thats why Paul concludes in verse 32: "For God has bound everyone over to disobedience so that he may have mercy on them all." (Romans 11:32, NIV)
+- This ties back to Romans 3, where Paul establishes that everyone is under sin and needs Gods grace.
