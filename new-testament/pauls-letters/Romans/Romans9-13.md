@@ -64,10 +64,10 @@ Chapter summary: Romans 11 continues Paul's discussion of Israel's unbelief, emp
 
 Why is Paul spending so much time talking about Israel?
 - Remember that Paul is writing to the Christians in Rome, a community that included both Jewish and Gentile believers. So hes trying to explain how Gods promises to Israel fit into his larger plan to salvation through Jesus Christ.
-- In this chapter hes particularly concerned that Gentile Christians might become arrogant and view themselves as superior to the Jewish peple because many Israelities have rejected Jesus.
+- In this chapter hes particularly concerned that Gentile Christians might become arrogant and view themselves as superior to the Jewish people because many Israelities have rejected Jesus.
 
 1. Romans 11:1-10 God hasnt rejected Israel
-- Paul is emphasizing that God hasnt abandoned Israel as a people, even though many have rejected the hosepl.
+- Paul is emphasizing that God hasnt abandoned Israel as a people, even though many have rejected the gosepl.
 
 *Baal was a false god worshipped by various peoples including some Israelities.*
 
@@ -78,8 +78,26 @@ Why is Paul spending so much time talking about Israel?
 - Then in verse 15: "For if their rejction brought reconciliation to the world, what will their acceptance be but life from the dead?" --> Paul describes that Israel acceptance would be like life from the dead, which shows the significance of it, as an illustration of spiritual restoration (Israel was dead spiritiually but through acceptance they could obtain life).
 
 3. Romans 11:25-32 "All Israel will be saved"
-- In verse 25 Paul is explaining that Israels unbelief is partial, beacuse not every Israelities has rejected Jesus, and that this hardening has a place in Gods larger plan.
+- In verse 25 Paul is explaining that Israels unbelief is partial, because not every Israelities has rejected Jesus, and that this hardening has a place in Gods larger plan.
 - And in verse 26 it says: "And in this way all Israel will be saved" --> A common interpretation is that Paul anticipated a future, widespread turning of the Jewish people toward Jesus Christ.
 
 The back-and-forth between Jews and Gentile in verses 30-32 is to make the point that neither group can claim to have earned salvation or be morally superior to the other. Thats why Paul concludes in verse 32: "For God has bound everyone over to disobedience so that he may have mercy on them all." (Romans 11:32, NIV)
 - This ties back to Romans 3, where Paul establishes that everyone is under sin and needs Gods grace.
+
+## Romans 12
+Chapter summary: After spending the first eleven chapters explaining sin, salvation, faith, and God's mercy, Paul now focuses on how Christians should live in response to everything God has done for them. He emphasizes surrendering ourselves to God, using our spiritual gifts to serve others, practicing humility, and demonstrating genuine love through our actions.
+
+1. Romans 12:1-2 A Living Sacrifice
+- Paul tells us to offer our bodies as a living sacrifice, to surrender our lives to God. Dedicate your lives to God through your actions and obedience.
+- Then verse 2 says: "Do not conform to the pattern of this world, but be transformed by the renewing fo your mind" --> Our standard for what is right and wrong should come from GOD and God only, not from the world.
+
+- Then to the second point in this verse --> As we grow in our understanding of Gods word and seek to obey him --> Our thinking, desires, and priorities gradually become more aligned with His will.
+
+2. Romans 12:3-8 Humble Service in the Body of Christ
+- Paul has an emphasis on humility here --> These gifts arent something weve earned but instead given through Gods grace and are intended to benefit the entire body of Christ.
+
+3. Romans 12:9-21 Love in Action
+- These instructions are about how Christians should treat everyone, not just the body of Christ.
+- A big theme here is to overcome evil with good --> This doesnt mean we should tolerate abuse, but dont allow anger or hatred to determine how we treat others.
+
+The central message of ROmans 12 is that genuien faith should transform the way we live, these behaviors arent a way to earn salvation. We don't live this way to earn God's mercy; we seek to live this way because we've already received his mercy.
