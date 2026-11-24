@@ -108,10 +108,10 @@ carousing = Excessive drinking, and unrestrained partying
 Chapter summary: Romans 13 continues Paul's teachings on how Christians should live in response to God's mercy. He focuses on three main responsibilities: respecting governing authorities, fulfilling God's commandments through love, and living with spiritual urgency in anticipation of Jesus Christ's return.
 
 1. Romans 13: 1-7 Submission to Governing Authorities
-- Paul is reffering to actual civil governments and political authorities, not the church. This includes rulers, and institutions responsible for maintaing order and adminstering justic.
-- So something interest is that Paul was writing this during the Roman Empire right which was NOT a Christian government, so Paul wasnt assuming that governments would uphold Gods values. Instead, when Paul says that governing authorities have been established by God, hes teaching that civil authority ultimately exists under Gods sovereignty and serves a legitimate purpose in maintaining order.
+- Paul is reffering to actual civil governments and political authorities, not the church. This includes rulers, and institutions responsible for maintaing order and adminstering justice.
+- So something interesting is that Paul was writing this during the Roman Empire right which was NOT a Christian government, so Paul wasnt assuming that governments would uphold Gods values. Instead, when Paul says that governing authorities have been established by God, hes teaching that civil authority ultimately exists under Gods sovereignty and serves a legitimate purpose in maintaining order.
 
-- This doesnt mean that God approves of ever ruler, nor does it mean that individual leaders have been chosen by God --> Rather, Paul is emphasizing that government itself has a legitimate role within Gods ordering of human society.
+- This doesnt mean that God approves of every ruler, nor does it mean that individual leaders have been chosen by God --> Rather, Paul is emphasizing that government itself has a legitimate role within Gods ordering of human society.
 
 "For the one in authority is Gods servant for your good" --> Paul is describing the responsibility that governing authorities are supposed to fulfill. Their power should be exercised for the good of society, not simply for their own interests.
 So what this subsection is mainly doing is teaching Christians that they have a broader responsibility to respect legitimate authority and contribute to an orderly society.
