@@ -21,3 +21,19 @@ Paul describes those who feel restricted in these matters as *weak in faith*, no
 Verse 22 --> "So whatever you believe about these things keep between yourself and God" --> "These things" refer to the disputable matters we have been discussing.
 
 Verse 23: "But whoever has doubts is condemned if they eat, because their eating is not from faith; and everything that does not come from faith is sin." --> Paul is discussing about acting against your conscience when you`re uncertain whether something is acceptable before God. So basically to not outwardly approve of something while internally believing its wrong --> Therefore leading your actions to conflict with your convictions.
+
+## Romans 15
+Chapter summary: Romans 15 continues Paul's teaching about unity within the church, particularly between believers who have different convictions. He encourages stronger believers to support weaker believers, following Jesus' example of selfless service. Paul then emphasizes that Christ came to fulfill God's promises to Israel while also extending God's mercy to the Gentiles.
+
+**1. Romans 15: 1-7 Bearing with the weak**
+- This is a direct continuation of Romans 14, when Paul refers to the "strong" and the "weak" hes talking about the same groups he discussed in the previous chapter. Those strong being those who understand their freedom in Christ and those whose consciences still restrict them in certain disputable matters. This can also be applied more broadly as well --> Christians who are spiritually mature should help those who are struggling, with no judgment and for the betterment of that struggling person.
+
+- "For even Christ did not please himseful" --> Paul is saying that Jesus willingly sacrified his own interests for the good of others --> Therefore, as Christians we should demonstrate this same selfless behavior.
+
+- "So that with one mind and one voice you may glorify the God" --> Christian unity isnt about everyone agreeing all the time, its about being united in Christ and working toward the same purpose of glorifying God.
+
+**2. Romans 15:8-12 Christ, Israel, and the Gentiles**
+- Paul is emphasizing here that Jesus became a servant to the Jewish people to demonstrate Gods faithfulness to the promises he made to their ancestor. To demonsrate that Gods plan always included the Gentiles, not just Israel.
+
+**3. Romans 15:14-22 Pauls Ministry to the Gentiles**
+- Paul repeatedly emphasizes throughout his letters: our ability to serve God ultimately comes from his grace, not merely from our own accomplishments. Paul describes his minstry as a gift of Gods grace.
