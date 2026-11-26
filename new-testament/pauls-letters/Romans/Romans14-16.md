@@ -26,9 +26,9 @@ Verse 23: "But whoever has doubts is condemned if they eat, because their eating
 Chapter summary: Romans 15 continues Paul's teaching about unity within the church, particularly between believers who have different convictions. He encourages stronger believers to support weaker believers, following Jesus' example of selfless service. Paul then emphasizes that Christ came to fulfill God's promises to Israel while also extending God's mercy to the Gentiles.
 
 **1. Romans 15: 1-7 Bearing with the weak**
-- This is a direct continuation of Romans 14, when Paul refers to the "strong" and the "weak" hes talking about the same groups he discussed in the previous chapter. Those strong being those who understand their freedom in Christ and those whose consciences still restrict them in certain disputable matters. This can also be applied more broadly as well --> Christians who are spiritually mature should help those who are struggling, with no judgment and for the betterment of that struggling person.
+- This is a direct continuation of Romans 14, when Paul refers to the "strong" and the "weak" hes talking about the same groups he discussed in the previous chapter. Those strong being those who understand their freedom in Christ and the weak, those whose consciences still restrict them in certain disputable matters. This can also be applied more broadly as well --> Christians who are spiritually mature should help those who are struggling, with no judgment and for the betterment of that struggling person.
 
-- "For even Christ did not please himseful" --> Paul is saying that Jesus willingly sacrified his own interests for the good of others --> Therefore, as Christians we should demonstrate this same selfless behavior.
+- "For even Christ did not please himself" --> Paul is saying that Jesus willingly sacrified his own interests for the good of others --> Therefore, as Christians we should demonstrate this same selfless behavior.
 
 - "So that with one mind and one voice you may glorify the God" --> Christian unity isnt about everyone agreeing all the time, its about being united in Christ and working toward the same purpose of glorifying God.
 
@@ -37,3 +37,15 @@ Chapter summary: Romans 15 continues Paul's teaching about unity within the chur
 
 **3. Romans 15:14-22 Pauls Ministry to the Gentiles**
 - Paul repeatedly emphasizes throughout his letters: our ability to serve God ultimately comes from his grace, not merely from our own accomplishments. Paul describes his minstry as a gift of Gods grace.
+
+## Romans 16
+Commend to you = recommend someone to anothers care
+Chapter summary: Romans 16 concludes Paul's letter with personal greetings to various believers who have contributed to the early church, a warning against those who cause divisions through false teachings, and a final expression of praise to God.
+
+- In verse 12 we get some insight into women serving in the early church. Paul specifically recognizes Tryphena, Tryphosa, and Persis for their hard work in the Lord. In fact, earlier in the chapter, he also commends Phoebe. This provides clear biblical evidence that women played important and meaningful roles in establishing and serving the early Christian church.
+
+- Romans 16:13 Rufus and his mother
+- Paul refers to Rufus`s mother as someone who had been a mother as well --> This is a great example of how the body of Christ is meant to function as a spiritual family, and a great example of how we should treat each other.
+
+## Book summary
+All humanity has sinned and needs God's righteousness. That righteousness cannot be earned through obedience to the law or good works, but is received through faith in Jesus Christ. And those who have received God's mercy are called to live transformed lives characterized by holiness, humility, love, and service to others.
